@@ -1,4 +1,4 @@
-# Num. 50 Como tomar buenas decisiones
+# Num. 50 Como tomar buenas decisiones.
 ### Introducción
 
 - ¿No les parece este un hermoso cuadro?
