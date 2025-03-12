@@ -241,6 +241,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 
 - No sabemos lo que nos espera en el futuro
 - **Pero** si confiamos en Jehova con todo nuestro corazón y dejamos que el nos guie
-- Nunca tendremos que arrepentirnos de nada, el quiere vernos felices a cada uno de nosotros
-- Y no sera una felicidad solo del momento, el quiere vernos felices para siempre
+- Nunca tendremos que arrepentirnos de nada
+- Recuerde el quiere vernos felices, y no solo ahora sino también en el futuro
+- Este cuadro de su vida usted lo puede seguir pintando para siempre, haciéndolo cada vez mas hermoso
 - 
