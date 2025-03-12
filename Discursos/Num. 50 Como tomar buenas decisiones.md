@@ -90,7 +90,6 @@ porque obedezco tus órdenes.
 - Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decision que vayamos a tomar.
 
 1. **NO SE APRESURE**
-
 - Al igual que un artista se toma su tiempo para pintar su obra
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Esto concuerda con lo que leemos en:
@@ -109,7 +108,7 @@ porque obedezco tus órdenes.
 - Y que nos ayudara a responder estas preguntas con sabiduría? 
 - Ahi viene el 2do Paso
 
-1. **OREMOS A JEHOVA PIDIENDO SABIDURIA**
+2. **OREMOS A JEHOVA PIDIENDO SABIDURIA**
 	- No olvidemos que somos imperfectos, por lo tanto... 
 	- A todos nos falta sabiduría en algunos aspectos de nuestra vida
 	- Y reconocerlo no tiene que avergonzarnos
@@ -131,7 +130,7 @@ porque obedezco tus órdenes.
 - Como El nos da sabiduría? 
 - Lo hace gracias al 3er paso, el cual es: 
 
-1. **INVESTIGUE A FONDO**
+3. **INVESTIGUE A FONDO**
 - El conocimiento nos lleva a la sabiduría
 - Por eso debemos buscarlo como algo muy valioso
 - El Rey Salomon sabia muy bien esto, por eso escribió en: 
@@ -160,7 +159,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 
 - Ahora vamos al ultimo paso y este es: 
 
-1. **ANALICE SUS MOTIVOS**  
+4. **ANALICE SUS MOTIVOS**  
 - A Jehova le importa las razones por las que hacemos las cosas
 - Recordemos que El siempre hace todo con un propósito
 - Hay un dicho muy popular que se utiliza al momento de tomar decisiones y es:
@@ -173,3 +172,39 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Jehova no quiere que tomemos una decision basándonos solo en nuestras emociones
 - Si lo hiciéramos seriamos insensatos y no terminaría bien
 - Pero si actuamos con sabiduría tal como dice el texto, entonces nos ira bien.
+---
+- Muy bien, ya vimos una serie de pasos que debemos seguir para tomar una decision
+- Y eso esta muy bien, podríamos decir que:
+- Tal como un pintor estamos planeando los trazos que vamos a pintar
+- Pero, e aquí la pregunta: Ya hemos pintado algo?
+- La verdad es que no, solo lo hemos planeado.
+- Lo mismo pasa con las decisiones, hay una gran diferencia entre tomar una decision, y llevar esa decision a la acción. 
+- Como podemos hacerlo?
+## Ponga manos a la obra
+- Una vez que hayamos tomado una decision, es importante esforzarnos por llevarla a cabo
+- Puede que, en algunas ocasiones, tomar la decisión no haya sido un gran reto, pero aplicarla nos resulte difícil.
+- Si se encuentra en una situación así, confié en que Jehova le dará el valor y las fuerzas necesarias para actuar.
+- Ahora bien, puede darse el caso que incluso si tomamos una buena decision en base a la Biblia, pasemos por dificultades.
+- Que debemos hacer en ese caso?
+- Encontramos la respuesta en:
+
+>[! Gálatas 6:9]
+>Así que no dejemos de hacer lo que está bien, porque al debido tiempo cosecharemos si no nos cansamos.
+
+- Es interesante que aca se habla de una cosecha
+- Uno no ve los resultados de una cosecha inmediatamente, tiene que pasar un tiempo
+- Del mismo modo puede que los buenos resultados de esa decision que estamos poniendo en practica tarden en llegar
+- Pero Jehova quiere que sigamos adelante, que nos concentremos en lo que queremos lograr y no en los desafíos.
+- Claro, a veces nuestras circunstancias pueden cambiar y la decision que hayamos tomado tal vez ya no la podemos llevar a cabo.
+- Eso significa que hemos fracasado?
+- Para nada, es algo que puede llegar a pasar
+- En ese caso debemos ser realistas y razonables.
+- Lo que implica:
+	- Revisar la decision
+	- Hacer los cambios necesarios 
+	- Y pensar en como podemos llevarla a cabo
+- Pero hay una decision que nunca deberíamos cambiarla, sea cual sea nuestras circunstancias.
+- Estamos hablando de la decision mas importante de nuestra vida: La de servir Jehova.
+
+## La decisión mas importante
+- 
