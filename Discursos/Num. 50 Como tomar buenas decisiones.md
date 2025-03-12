@@ -207,4 +207,20 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Estamos hablando de la decision mas importante de nuestra vida: La de servir Jehova.
 
 ## La decisión mas importante
+- Puede que se pregunte
+- Por que la decision mas importante es: la de dedicar nuestra vida a Jehova?
+- En nuestra vida vamos a tener que tomar muchas decisiones, sean grandes o pequeñas
+- Pero todas irán en armonía con esta gran decision, he ahi la importancia.
+- Servir a Jehova tiene muchos beneficios, tanto ahora como en el futuro.
+- Hay que tomar en cuenta que al ser la decision mas importante que podemos tomar, no debemos apresurarnos.
+- En caso de que usted aun no haya tomado esta decision, recuerde...
+- El deseo de servir a Jehova debe ser algo genuino que brote del Corazón de cada uno de nosotros
+- Y eso requiere tiempo, pero tampoco posponga esta decision sin motivo.
+- Si nota que algo lo esta frenando de tomar esta decision y ponerla en obras.
+- Identifique cual es el problema y luego resuélvalo.
+- Y en caso de que ya se haya dedicado a Jehova, lo Felicitamos!!
+- Seguro que esta viendo de primera mano los beneficios de servir a nuestro creador
+- Pero seamos realistas, este mundo esta controlado por Satanás
+- El quiere que dejemos de servir a Jehova
+- Por esa razon puede que muchas veces nos enfrentemos a obstáculos que nos hagan difícil servir a Jehova
 - 
