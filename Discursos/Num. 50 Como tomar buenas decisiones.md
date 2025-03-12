@@ -207,6 +207,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Estamos hablando de la decision mas importante de nuestra vida: La de servir Jehova.
 
 ## La decisión mas importante
+
 - Puede que se pregunte
 - Por que la decision mas importante es: la de dedicar nuestra vida a Jehova?
 - En nuestra vida vamos a tener que tomar muchas decisiones, sean grandes o pequeñas
@@ -222,5 +223,24 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Seguro que esta viendo de primera mano los beneficios de servir a nuestro creador
 - Pero seamos realistas, este mundo esta controlado por Satanás
 - El quiere que dejemos de servir a Jehova
-- Por esa razon puede que muchas veces nos enfrentemos a obstáculos que nos hagan difícil servir a Jehova
+- Por esa razon puede que muchas veces nos enfrentemos a obstáculos que nos hagan difícil ser leales a nuestro Dios
+- En esos momentos busque la ayuda de Jehova, el lo ayudara a ser fiel a esa importante decision que tomo.
+---
+## Nuestras decisiones son importantes para Jehova
+
+- Recuerde que usted es el pintor de su propio cuadro, al final del día usted tomara sus propias decisiones
+- Pero ahora pregúntese: Como esta quedando mi cuadro? Me gusta lo que veo?
+- Y aun mas importante: Le gustara a Jehova el cuadro que estoy pintando?
+- La verdad es, que a Jehova le importa mucho las decisiones que tomemos
+- El quiere que con nuestras decisiones pintemos una obra de arte
+- No para los ojos de este mundo, sino una que nos haga felices y de gloria a Jehova
+- La técnica perfecta para lograrlo la encontramos en:
+ 
+>[! Proverbios 3: 5,6]
+> Confía en Jehová con todo tu corazón y no te apoyes en tu propio entendimiento. Tómalo en cuenta en todos tus caminos, y él hará rectas tus sendas.
+
+- No sabemos lo que nos espera en el futuro
+- **Pero** si confiamos en Jehova con todo nuestro corazón y dejamos que el nos guie
+- Nunca tendremos que arrepentirnos de nada, el quiere vernos felices a cada uno de nosotros
+- Y no sera una felicidad solo del momento, el quiere vernos felices para siempre
 - 
