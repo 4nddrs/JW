@@ -69,7 +69,7 @@
             "autoReveal": false
           },
           "icon": "lucide-folder-closed",
-          "title": "Files"
+          "title": "Explorador de archivos"
         }
       },
       {
@@ -182,21 +182,21 @@
   },
   "left-ribbon": {
     "hiddenItems": {
-      "obsidian-git:Open Git source control": false,
-      "switcher:Open quick switcher": false,
-      "graph:Open graph view": false,
-      "canvas:Create new canvas": false,
-      "daily-notes:Open today's daily note": false,
-      "templates:Insert template": false,
-      "command-palette:Open command palette": false
+      "switcher:Abrir selector rápido": false,
+      "graph:Abrir vista gráfica": false,
+      "canvas:Crear nuevo lienzo": false,
+      "daily-notes:Abrir la nota de hoy": false,
+      "templates:Insertar plantilla": false,
+      "command-palette:Abrir paleta de comandos": false,
+      "obsidian-git:Open Git source control": false
     }
   },
   "active": "b596d1e08c0cd557",
   "lastOpenFiles": [
     "Preguntas.md",
     "Apuntes.md",
-    "Untitled",
     "Discursos/Num. 50 Como tomar buenas decisiones.md",
+    "Untitled",
     "Escuela de Siervos Ministeriales 2025",
     "/Discursos/Num. 50 Como tomar buenas decisiones.md",
     "/Discursos",
