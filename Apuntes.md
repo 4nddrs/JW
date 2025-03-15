@@ -218,7 +218,7 @@
 - Hacemos felices a Jehová
 - Nos beneficia a nosotros y a los demás
 
-#### Serie de discursos: Pastoreen hábilmente a los inactivos
+### Serie de discursos: Pastoreen hábilmente a los inactivos
 
 #### Son valiosos para Jehová
 - Isaias 40:11
@@ -264,13 +264,117 @@
 - Jehová cumplirá con su promesa por medio de nosotros
 - Debemos ser amables y pacientes
 - Tenemos la herramienta: Jehová desea que vuelva 
+- Salmo 68:6
+- Dejemos que Jehová nos de la bienvenida a casa
+- La amabilidad y la paciencia siempre dan buenos resultados
+- Tenemos el privilegio de cooperar con los ancianos
+- Cuando tengas dudas, el proceder bondadoso es el camino correcto
+#### No se rindan
+- Malaquias 3:7
+- Estaban en una situación negativa, pero aún así Jehová les demostró interés
+- Jehová no se cansa de buscar a la oveja perdida
+- Jehová nos utiliza a nosotros para recordarles cuánto les ama
+- Qué cualidades necesitamos para no rendirnos?
+	- Amor
+	- Empatía
+- Óseas 11:4
+- Jehová utiliza las cuerdas del amor
+- No estamos ahí para juzgarlos con dureza, estamos para demostrarles amor
+- Jehová puede utilizarnos a nosotros
+- Podemos darle una nota, una llamada, o un mensaje
+- Debemos ver esto como un privilegio
+- No es una simple responsabilidad, es un gran honor
+- Como nos ayuda el amor?
+- Nos ayuda a a ver a las ovejas como Jehová nos ve
+- La empatía nos ayuda a escuchar al hermano
+- Jehová quiere que aprendamos a mostrar empatía
+- Ayudar a los inactivos nos da felicidad
+- Lucas 15:7, 10
+- El alcance es hasta nivel espiritual
+- Jehová, Jesús, Los Ángeles están pendientes de todas las ovejas
+- 1 Juan 3: 19, 20
+- Dios es más grande que nuestro corazón, y prometo ayudarnos
+- Pueden recuperar esos años perdidos en el nuevo mundo, tienen toda la eternidad
+- Jeremías. 31:3
+- Jehová no espera que volvamos solos, el promete ayudarnos
+- Nunca dudé que Jehová lo está atrayendo
+- Volver no es fácil, pero él no espera que lo hagas solo
+1. Mostrar amor
+2. Ser sus amigos
+3. Recordar que esa persona ama a Jehová
+- Lamentaciones 5:21
+- Puede que los inactivos tengan el deseo de volver, solo necesitan ayuda
+- Nunca nos cansemos de ayudar a los hermanos inactivos
+
+## La mujer que teme a Jehová recibirá alabanzas
+- Las esposas son de gran ayuda
+- Qué papel tienen las esposas?
+- 1 Timoteo 3:11
+- La nota incluye a las esposas, eso significa que las esposas juegan un papel fundamental para que el varón tenga responsabilidades en la congregación 
+- Proverbios 31:30
+- Jehová sabe que los esposos son imperfectos, pero aún así le pide a la esposa obediencia
+- Al tomar decisiones debemos tomar en cuenta a la esposa
+- A menudo los hermanos nombrados no recibimos muchos elogios
+- Pero si el elogio viene de esa personas especial, ese elogio vale mucho más
+#### La confianza en el matrimonio 
+- La confianza es muy importante para el matrimonio
+- La esposa puede demostrar confianza en la:
+	- Confidencialidad
+	- Dinero
+	- Al administrar el hogar
+- A menudo en el mundo el trabajo doméstico es algo degradable, pero Jehová no lo ve así
+- Los demás deben ver al matrimonio como un equipo
+- Tener un día especial cada semana para estar juntos
+- Orar juntos al empezar y al terminar el día
+- Madrugar para leer la Biblia y considerar el texto diario
+- Seguir el ejemplo de Aquila y Priscila
+#### En la Congregación 
+- En la congregación son hermanas, amigas, madres que animan a otros
+- Proverbios 31:26
+- Las palabras deben ser sabias
+- En caso de que algo no les guste, hay que expresarlo de manera amable
+- Una boca sabia + Decirlo de forma bondadosa = Edificar a la congregación
+- Las hermanas tienen la cualidad de ser amables y bondadosas
+- Proverbios 31:10
+- Por qué un Coral? Por qué no El Oro? O algo más valioso?
+- Los corales son muy difíciles de encontrar, era algo muy cotizado
+- Sus precios eran muy altos
+- Es imposible esconder o negar lo valiosas que son las esposas cristianas
+- Proverbios 31: 28
+- Tal como una pieza musical, la esposa es una de ellas.
+- Por eso debemos pararnos a aplaudirnos
+- Para Jehová las esposas son muy valiosas
+- Le damos gracias a Jehová por contar por esposas que apoyan a los hermanos que llevan la delantera
+## Los tenemos “en alta estima”
+- Filipenses 2: 29
+- Jehovs tiene en alta estima a los Siervos Ministeriales
+- Somos regalos de parte de Jehová
+- Prestamos servicios de ayuda
+- Romanos. 12: 4, 5
+- En un solo cuerpo hay muchos miembros 
+- Filipenses 2:17
+- Cuál es la clave para cumplir con todas las responsabilidades, y no perder el equilibrio?
+- Filipenses 1:10
+	- Asegurarnos de las cosas más importantes 
+	- Cuáles son las más importantes?
+		1. La adoración a Jehová (Mateo 4:10)
+		2. El cuidado de la familia (1 Timoteo 5:8)
+		3. El trabajo (2 Tesalonisenses 3:10)
+		4. El esparcimiento (1 Timoteo 4:8)
+- Nuestro privilegio como Siervo Ministerial es una protección para mantener ese orden en nuestra vida
+- Josue 1: 7
+- Aquí se nos habla de como ser valientes, lo logramos cuando aprendemos y meditamos en la Palabra de Dios
+- Isaias 41:10
+- Sentimos el apoyo de Jehová, ese apoyo Jehová lo puede hacer llegar por medio de las esposas
+- Efesios 3:20
+- Jehová puede ayudarnos a alcanzar más metas espirituales 
+- Cuando la esposa encomia a su esposo, ese encomio también viene de Jehová
+- Colosenses 3: 23, 24
+- Jehová nos premiará por todo el esfuerzo
+---
+## Conclusión 
+- Salmo 78:72
+- Pastorear requiere trabajo duro y habilidad
+- El amor a los demás nos mueve a hacerlo
+- Jehová bendecirá todos nuestros esfuerzos
 - 
-
-
-
-
-
-
-
-
-11No se rindan25 mins.12Repaso. Sesión 2
