@@ -4,11 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "91e4be2d983560c7",
+        "id": "035a02a4e92a72c4",
         "type": "tabs",
         "children": [
           {
-            "id": "578c05f1b3203fc1",
+            "id": "1a078cd96a1b3243",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -179,11 +179,13 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "578c05f1b3203fc1",
+  "active": "a414bced316954f0",
   "lastOpenFiles": [
-    "Discursos/Num. 50 Como tomar buenas decisiones.md",
-    "Preguntas.md",
+    "conflict-files-obsidian-git.md",
     "Apuntes de la Escuela del Ministerio del Reino.md",
+    "Discursos/Num. 50 Como tomar buenas decisiones.md",
+    "Apuntes de la Escuela del Ministerio del Reino.md",
+    "Preguntas.md",
     "Discursos",
     "Bienvenido.md"
   ]
