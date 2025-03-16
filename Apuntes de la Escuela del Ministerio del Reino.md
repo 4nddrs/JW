@@ -442,4 +442,3 @@
 - Jehová bendecirá todos nuestros esfuerzos
 - Todos tenemos distintas tareas, pero las hacemos con gozo motivados por el amor a Jehova y a los hermanos
 - La canción a terminado, pero la melodía perdura
-- hola
