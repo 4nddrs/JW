@@ -366,6 +366,7 @@
 - Jehová nos premiará por todo el esfuerzo
 ---
 ## Conclusión 
+
 - Salmo 78:72
 - Pastorear requiere trabajo duro y habilidad
 - El amor a los demás nos mueve a hacerlo
