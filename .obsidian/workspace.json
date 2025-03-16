@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Apuntes de la Escuela del Ministerio del Reino.md",
+                "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Apuntes de la Escuela del Ministerio del Reino"
+              "title": "Num. 50 Como tomar buenas decisiones"
             }
           }
         ]
@@ -181,10 +181,8 @@
   },
   "active": "578c05f1b3203fc1",
   "lastOpenFiles": [
-    "Discursos/Num. 50 Como tomar buenas decisiones.md",
-    "Preguntas.md",
-    "Apuntes de la Escuela del Ministerio del Reino.md",
     "Discursos",
-    "Bienvenido.md"
+    "Bienvenido.md",
+    "Discursos/Num. 50 Como tomar buenas decisiones.md"
   ]
 }

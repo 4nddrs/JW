@@ -1,4 +1,6 @@
-## Pongámonos al frente del ministerio con valor
+1 Bienvenidos a la Escuela del Ministerio del Reino 15 mins.
+
+## 2 Pongámonos al frente del ministerio con valor
 - Somos maestros de las buenas noticias 
 - Pase lo que pase queremos seguir siendolo
 - 1 Tesalonicenses 2:2
@@ -37,7 +39,7 @@
 - Todos nosotros somos como antorchas, podemos contagiar entusiamo
 - Jehová ve nuestros esfuerzo y el ejemplo que damos, y él nos recompensará
 
-## Dirijan bien a su familia
+## 3 Dirijan bien a su familia
 - 1 Corintios 3:10
 - Debemos edificar una estructura sólida en la familia y en la congregación 
 - Dirigir bien a la familia es un requisito
@@ -70,7 +72,7 @@
 - Podemos preocuparnos personalmente por cada integrante
 - Si cumplimos con nuestras responsabilidades familiares alabaremos a Jehová
 
-## Esfuércense por una labor muy buena
+## 4 Esfuércense por una labor muy buena
 - 1 Timoteo 3:1
 - El deseo de progreso es algo muy bueno
 - Jehová espera que nos esforzemos
@@ -95,7 +97,7 @@
 - Debemos trabajar para la gloria de Dios
 - No nos desanimemos si el nombramiento no llega, sigamos trabajando
 
-## Dominemos nuestra mente.
+## 5 Dominemos nuestra mente.
 - El cerebro es asombroso
 #### Podemos controlar nuestros pensamientos?
 - La Biblia dice que si
@@ -122,7 +124,7 @@
 ---
 - Hay que servir a Jehová con toda nuestra mente.
 
-## Jehová levanta pastores hábiles en momentos difíciles
+## 6 Jehová levanta pastores hábiles en momentos difíciles
 - Como nos sentimos cuando estamos enfermos?
 - Nos llegan muchas preocupaciones y nos sentimos débiles
 - Salmo 41:3
@@ -153,7 +155,7 @@
 - Debemos entrenar nuestra conciencia
 - Esta nos guiara para tomar decisiones
 - 2 Corintios 2:17
-- Jehová nos dio libertad de elección 
+- Jehová nos dio libertad de eleccion 
 #### Por que los principios son superior a las reglas?
 - Los principios son verdades fundamentales
 - Nos van moldeando poco a poco
@@ -186,6 +188,7 @@
 - Pongamos el ejemplo a los demás
 - 1 Corintios. 4:6
 - Pablo les estaba ayudando a los hermanos la importancia de no seguir a los hombres, sino a Jehová
+
 #### Dejemos que los principios nos guíen en el tema del alcohol 
 - Proverbios 23:20
 - El exceso de alcohol puede llevar a varios problemas
@@ -209,11 +212,13 @@
 - Mateo 5:29
 	- Debemos establecer una acción radical, capaz sea mejor no beber 
 - Debemos tomar en cuenta la conciencia de los demás 
+
 #### Cuáles son los beneficios de dejarnos guiar por los principios Bíblicos
 - Tenemos los mejores resultados
 - Hacemos felices a Jehová
 - Nos beneficia a nosotros y a los demás
-## Serie de discursos: Pastoreen hábilmente a los inactivos
+
+### Serie de discursos: Pastoreen hábilmente a los inactivos
 
 #### Son valiosos para Jehová
 - Isaias 40:11
@@ -232,7 +237,8 @@
 - Tenemos que llegar a ser maestros que levantan y fortalecen el ánimo
 - Jehová aun quiere a estos herman@s
 - Tengamos la esperanza de que ellos aún aman a Jehová
-#### Sean amables y pacientes
+
+#### 10 Sean amables y pacientes
 - Salmo 94:19
 - Nuestros hermanos pueden sentirse como el salmista
 - Debemos desarrollar amabilidad y paciencia
@@ -299,6 +305,7 @@
 - Lamentaciones 5:21
 - Puede que los inactivos tengan el deseo de volver, solo necesitan ayuda
 - Nunca nos cansemos de ayudar a los hermanos inactivos
+
 ## La mujer que teme a Jehová recibirá alabanzas
 - Las esposas son de gran ayuda
 - Qué papel tienen las esposas?
@@ -366,10 +373,8 @@
 - Jehová nos premiará por todo el esfuerzo
 ---
 ## Conclusión 
-
 - Salmo 78:72
 - Pastorear requiere trabajo duro y habilidad
 - El amor a los demás nos mueve a hacerlo
 - Jehová bendecirá todos nuestros esfuerzos
-- Todos tenemos distintas tareas, pero las hacemos con gozo motivados por el amor a Jehova y a los hermanos
-- La canción a terminado, pero la melodía perdura
+- 
