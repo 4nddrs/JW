@@ -243,10 +243,8 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - **Pero** si confiamos en Jehova con todo nuestro corazón y dejamos que el nos guie
 - Nunca tendremos que arrepentirnos de nada
 - Recuerde el quiere que seamos felices de verdad, y no solo ahora, también en el futuro.
-
-## Conclusion
-- Del mismo modo que un pintor no deja su obra al azar, nosotros tampoco debemos dejar nuestras vidas a la casualidad.
-- Cada decisión que tomamos es como una pincelada en el lienzo de nuestra vida. Si elegimos con sabiduría, paciencia y confiamos en la guía que Jehova nos da, lograremos una obra hermosa
 - Por eso, esforcémonos por usar bien nuestro "pincel", tomando decisiones que nos lleven a una vida feliz. 
-- Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado, y no solo nosotros sino también Jehova.
-- 
+- Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado
+- Y lo mas importante, Jehova nos dirá:
+- Bien hecho, me gusta mucho lo que 
+
