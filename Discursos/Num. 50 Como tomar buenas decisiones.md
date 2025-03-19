@@ -233,15 +233,20 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Y aun mas importante: Le gustara a Jehova el cuadro que estoy pintando?
 - La verdad es, que a Jehova le importa mucho las decisiones que tomemos
 - El quiere que con nuestras decisiones pintemos una obra de arte
-- No para los ojos de este mundo, sino una que nos haga felices y de gloria a Jehova
+- Pero no para los ojos de este mundo, sino una que nos haga felices y de gloria a Jehova
 - La técnica perfecta para lograrlo la encontramos en:
  
->[! Proverbios 3: 5,6]
+>[! Proverbios 3: 5, 6]
 > Confía en Jehová con todo tu corazón y no te apoyes en tu propio entendimiento. Tómalo en cuenta en todos tus caminos, y él hará rectas tus sendas.
 
 - No sabemos lo que nos espera en el futuro
 - **Pero** si confiamos en Jehova con todo nuestro corazón y dejamos que el nos guie
 - Nunca tendremos que arrepentirnos de nada
-- Recuerde el quiere vernos felices, y no solo ahora sino también en el futuro
-- Este cuadro de su vida usted lo puede seguir pintando para siempre, haciéndolo cada vez mas hermoso
+- Recuerde el quiere que seamos felices de verdad, y no solo ahora, también en el futuro.
+
+## Conclusion
+- Del mismo modo que un pintor no deja su obra al azar, nosotros tampoco debemos dejar nuestras vidas a la casualidad.
+- Cada decisión que tomamos es como una pincelada en el lienzo de nuestra vida. Si elegimos con sabiduría, paciencia y confiamos en la guía que Jehova nos da, lograremos una obra hermosa
+- Por eso, esforcémonos por usar bien nuestro "pincel", tomando decisiones que nos lleven a una vida feliz. 
+- Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado, y no solo nosotros sino también Jehova.
 - 
