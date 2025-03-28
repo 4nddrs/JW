@@ -97,6 +97,7 @@ porque obedezco tus órdenes.
 >[!Deuteronomio 32:29]
 > ¡Ojalá fueran sabios! Reflexionarían sobre todo esto. Pensarían en cómo acabarán.
 
+
 - Jehová quiere que seamos sabios
 - Y actuar con sabiduría es sacar tiempo para pensar en las opciones que tenemos
 - Y no solo eso... sino pensar en los posibles resultados de esa decision
