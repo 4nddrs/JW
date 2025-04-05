@@ -8,18 +8,22 @@
 - Con habilidad, paciencia y gracias a este instrumento, pudo crear esta maravillosa pintura.  
 
 - Tomar decisiones es como pintar un cuadro.  
-- Cada elección que hacemos es una pincelada que da forma a nuestra obra.  
+- Cada elección que hacemos es una pincelada que da forma a nuestra vida.  
 - Podemos pintar al azar y esperar que algo bueno surja...  
 - O podemos planear cada trazo con cuidado para crear una pintura realmente hermosa.  
 - En otras palabras, podemos construir una vida feliz basada en buenas decisiones.
 
 ### Jehová nos ha dado libertad para elegir  
 
-- Y, ¿saben? Jehová nos ha dado a cada uno un pincel.  
+- Y, ¿saben? Jehová nos dio un regalo muy valioso
+- El nos dio a cada uno de nosotros un pincel.  
 - Sí... Nos ha dado la libertad para tomar nuestras propias decisiones.  
 - Seguramente todos queremos que nuestras elecciones formen un cuadro hermoso.  
 - Pero no siempre es tan fácil, ¿verdad? Hay decisiones que pueden llegar a agobiarnos.  
-- Por eso, Jehová nos ofrece su ayuda. Él quiere enseñarnos cómo tomar buenas decisiones y ponerlas en práctica, para que así logremos pintar una obra digna de admirar.
+- Por eso, Jehová nos ofrece su ayuda. 
+- Él quiere enseñarnos a usar este regalo de la mejor forma posible.
+- Lo que significa: Tomar buenas decisiones y ponerlas en práctic
+- Para que así logremos pintar una obra digna de admirar.
 - Una obra que refleje sincera felicidad 
 
 ### Jehová nos da herramientas para que tomemos buenas decisiones
@@ -30,7 +34,7 @@
 #### 1. La Biblia
 
 - La Biblia es la palabra de Jehova, contiene consejos sabios y prácticos
-- Pero como podemos nosotros beneficiarnos de lo que leemos en la Biblia, en el Salmo 119 : 97 encontramos la respuesta:
+- Pero como podemos nosotros beneficiarnos de lo que leemos en la Biblia, en el Salmo 119: 97 encontramos la respuesta:
 
 >[!Salmo 119:97]
 >¡Cuánto amo tu ley! Reflexiono en ella todo el día
@@ -52,17 +56,24 @@ porque obedezco tus órdenes.
 - Esto nos enseña a los Jovenes que podemos actuar con sabiduría, la edad no debe ser una excusa para creer que no podemos ser sabios. 
 - Ya que tenemos a Jehova y sus enseñanzas como una de nuestras herramientas.
 
--  A lo largo de nuestra vida tendremos que tomar varias decisiones y puede que en la Biblia no haya un mandato especifico para cada situación
-- Que debemos hacer en ese caso? 
-- Buscar principios bíblicos que nos puedan ayudar
-- Recordemos que la Biblia proviene de Jehova, nuestro creador
-- El nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos pueda ayudar.
+- A lo largo de nuestra vida tendremos que tomar varias decisiones y puede que en la Biblia no haya un mandato especifico para cada situación
+- Pero nos da principios para que pensemos como Jehová piensa.
+- Tal vez se le pase por la mente  que todo seria más sencillo si Jehová nos hubiera dado reglas para cada circunstancia.
 
-- Pensemos en la Biblia como un album de pinturas, en ella encontramos hombres y mujeres fieles que pintaron con sus buenas decisiones obras de arte.
-- Estos ejemplos de fe consiguieron vidas felices sirviendo a Jehova, nosotros queremos lo mismo
+- Pero la verdad… es que Jehová no nos da leyes estrictas para todo porque eso nos limitaría
+- Jehová no quiere que sigamos reglas como simples peones
+- El quiere que aprendamos a pensar como el
+
+- Por eso buscar principios bíblicos es clave
+- Jehová nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos pueda ayudar.
+
+- Pensemos en la Biblia como un album de cuadros, en ella encontramos obras de arte, que fueron pintadas por hombres y mujeres fieles.
+- Estos ejemplos de fe construyeron vidas felices sirviendo a Jehova, nosotros queremos lo mismo
 - Así que aprendamos de ellos, para poder imitarlos.
-
-- Si hacemos todo esto, conseguiremos **sabiduría**, y como nos beneficia tenerla?
+- Si hacemos todo esto, conseguiremos **sabiduría**
+#### Conciencia 
+- Y está es la clave para usar bien la 2da herramienta qué Jehová nos dio
+- Para descubrir a que nos referimos, vamos a leer:
 
 >[!Proverbios 2:10, 11]
 >Cuando la sabiduría entre en tu corazón y el conocimiento se convierta en algo agradable para tu alma
@@ -106,7 +117,7 @@ porque obedezco tus órdenes.
 	- Como se sentirá Jehova al respecto? Afectara en la relación que tengo con el? 
 	
 - Debemos responder estas preguntas con sinceridad y para eso tenemos que tomarnos el tiempo que sea necesario.
-- Y que nos ayudara a responder estas preguntas con sabiduría? 
+- Y que nos ayudara a responder las preguntas que acabamos de hacernos con sabiduría? 
 - Ahi viene el 2do Paso
 
 2. **OREMOS A JEHOVA PIDIENDO SABIDURIA**
@@ -249,3 +260,4 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Y lo mas importante, Jehova nos dirá:
 - Bien hecho, me gusta mucho lo que 
 
+[hola](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=20015002&pub=nwtsty)

@@ -1,0 +1,34 @@
+- Jesus nos dio un encargo muy especial
+- En Mateo 28:19
+- Jesús nos encargo: Hacer discipulos
+- Como podemos tener un estudio de la Biblia
+- Hagamos dos cosas:
+	- Orar a Jehová
+	- Obrar de acuerdo a nuestras oraciones
+- 1 Juan 5:14
+- Es voluntad de Jehová de que tengamos un estudio Bíblico?
+- Claro que si, Jehová desea que el mayor número de personas se salven.
+- Tenemos una gran ayuda, Los Ángeles.
+- Aunque no vemos directamente a Los Ángeles, su ayuda es evidente.
+- Debemos pedirle el deseo, las fuerzas y el valor para ofrecer un estudio Bíblico
+- Que podemos pedirle a Jehová
+	- Pidamos que nos ayude a encontrar a una persona interesada
+	- Pedirle el deseo como también las fuerzas
+	- Hay que pedirle valor
+- Preguntas para hacernos:
+	- Aparto tiempo para predicar de casa en casa?
+	- Hago lo posible para predicar en horarios donde hay más personas en casa?
+		- Al igual que un pescador, debemos adaptarnos a las personas para poder pescar
+- Eclesiastés 11:6
+- “Que no descansen tus manos hasta el amanecer”
+- Los Ángeles nos guían a oportunidades para ofrecer cursos bíblicos
+- Al ofrecer un curso bíblico no presionemos a las personas.
+-  Nuestra conducta puede ayudar a las personas a acercarse a Jehová
+- Jehová nos escucha y nos da el valor para hablar acerca de el
+- El nombre de Jehová está en juego, por eso debemos vencer el miedo
+- Tenemos que predicar sin importar el lugar, el momento y la persona
+- Debemos mantener el equilibrio entre las actividades espirituales como las seglares
+- Tener más responsabilidades no significa que debemos descuidar lo más importante.
+- Ver a los estudiantes progresar nos da alegría y nos motiva a seguir esforzarnos
+- Vale la pena esforzarnos por conseguir estudios bíblicos, por eso no nos rindamos
+- Jehová quiere que nos esforcemos, y con su ayuda lograremos alcanzar esta meta.

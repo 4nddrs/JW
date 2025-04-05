@@ -1,0 +1,90 @@
+- 2 Timoteo 2:15
+- Nuestras enseñanzas deben ajustarse a lo que la Biblia enseña
+- Podemos dar un contexto de un versículo antes de leerlo
+	- Quien fue el escritor?
+	- Las circunstancias
+	- En que momento lo escribió?
+- Dar el contexto hace la referencia ya que le damos un significado
+- Tal como un artesano usa bien todos sus utensilios, nosotros debemos aprovechar todas nuestras herramientas
+- Herramientas
+	- Una obra de amor (Apéndice A)
+		1. El futuro
+		2. El sufrimiento
+		3. La familia
+		- Que debo hacer para usar esta herramienta de forma correcta?
+		- Debemos familiarizarnos con la información 
+		- Podemos aprender algunos textos para temas específicos
+		- Jehová quiere que nos capacitemos
+		- Si nos capacitamos estamos demostrando que queremos cumplir la labor que nos dio Jehová de la mejor manera.
+		- Como vemos la Biblia?
+		- Éxodo 4:2-5
+		- Gracias a esta prueba Moises pudo representar a Dios con confianza 
+		- Al igual que Moisés tenía una vara, Jehová nos ha dado una herramienta, La Biblia
+		- Hebreos 4:12
+		- Jehová utiliza la Biblia para cambiar a las personas
+		- Al igual que la vara cobra vida, La Biblia cobra vida cuando la leemos y causa un efecto real
+		- Cuando usamos la Biblia estamos usando algo con mucho poder
+		- Por eso no debemos tener miedo en usarla
+		- Preguntémonos:
+			- Como la Biblia me ayudó?
+			- Que te convence que esta es la verdad?
+		- 1 Tesalonisenses 2:13
+		- Como nos está ayudando el precursorado?
+			- Nos ayuda a depender de Jehová
+			- Nuestras skills van mejorando
+		- Que otras bendiciones recibimos?
+			- Aumenta el aprecio que sentimos por la verdad
+			- Valoramos más la sabiduría de Jehová
+			- Trabajar en el ministerio con nuestros hermanos nos anima mucho
+			- Ser precursores con nuestro cónyuge refuerza la triple cuerda
+			- Nuestra confianza en Jehová crece cuando lo ponemos en primer lugar
+		- Estar ocupados en el ministerio es útil cuando experimentamos un cambio
+		- Ser precursor es una protección 
+		- Hechos 6:5
+		- Felipe era conocido por ser Evangelizador
+		- El demostró una confianza absoluta en Jehová
+		- Hechos 8: 4-6
+		- Felipe no se lamentó por el cambio de circunstancias 
+		- El se concentró en el ministerio 
+		- El cambio no le impide él seguir proclamando el nombre de Jehová
+		- Hechos 21:8, 9
+		- A Felipe todos lo conocían como el evangelizador
+		- Era algo muy evidente en el
+		- Que podemos aprender de Felipe?
+			- Confiar en Jehová
+			- Una actitud positiva
+			- Ser celosos
+		- Como debemos ver el precusorado?
+			- Como una bendición y debemos hacerlo de forma continua
+	- Hay relación directa entre ser Precursor y Trabajador?
+	- Claro que sí, ser un buen precursor requiere ser trabajadores
+	- Si las circunstancias no nos permiten ser precursor, demostremos un espíritu de precursor
+	- Salmo 37:5
+	- Pongamos nuestro camino en manos de Jehová
+	- Como lo logramos?
+		- Confiando en el
+		- Como confiamos más en el?
+			- Usando las herramientas que Jehová nos da
+
+#### Necesidades de la congregación 
+- Hechos 28: 16-24
+- Hechos 28:30, 31
+- Podemos imitar a Pablo, su celo era innegable 
+- Pablo dijo que no tenía ningún obstáculo
+- Eso era porque nadie le iba a impedir que predicara
+- Pese a las circunstancias Pablo seguía predicando
+---
+- 2 Timoteo 4:11
+- Al final de su vida Pablo quería seguir capacitando a los jóvenes
+- Animemos a los jóvenes para que progresen
+- Como lo logramos?
+	- Invitándolos a predicar y a nuestros estudios bíblicos
+	- Encomiarles por todo lo que hacen
+	- Ayudarles a ponerse metas
+#### Conclusión 
+- Apocalipsis 2:19
+- Nuestros hechos son más que los de antes
+- Y esto debe ser algo constante
+- Su fe, amor, su aguante y su lealtad son más fuertes
+- Esto es gracias a que fuimos fieles estos años
+- Para Jehová somos muy valiosos 
