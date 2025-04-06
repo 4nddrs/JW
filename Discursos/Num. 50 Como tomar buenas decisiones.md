@@ -1,6 +1,8 @@
 # Num. 50 Como tomar buenas decisiones
 ### Introducción
 
+![[65D7A65A-F18D-456C-A3EC-634777011A8F.png]]
+
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
 - Es una obra hecha a mano, por lo que el pintor seguramente usó uno de estos: (🖌️)  
@@ -22,7 +24,7 @@
 - Pero no siempre es tan fácil, ¿verdad? Hay decisiones que pueden llegar a agobiarnos.  
 - Por eso, Jehová nos ofrece su ayuda. 
 - Él quiere enseñarnos a usar este regalo de la mejor forma posible.
-- Lo que significa: Tomar buenas decisiones y ponerlas en práctic
+- Lo que significa: Tomar buenas decisiones y ponerlas en práctica
 - Para que así logremos pintar una obra digna de admirar.
 - Una obra que refleje sincera felicidad 
 
@@ -101,7 +103,7 @@ porque obedezco tus órdenes.
 - Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decision que vayamos a tomar.
 
 1. **NO SE APRESURE**
-- Al igual que un artista se toma su tiempo para pintar su obra
+- Al igual que un artista se toma su tiempo para pensar en qué quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Esto concuerda con lo que leemos en:
 
