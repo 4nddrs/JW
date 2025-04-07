@@ -1,7 +1,7 @@
 # Num. 50 Como tomar buenas decisiones
 ### Introducción
 
-![[65D7A65A-F18D-456C-A3EC-634777011A8F.png]]
+![[1.png]]
 
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
