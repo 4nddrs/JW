@@ -26,7 +26,7 @@
 - Él quiere enseñarnos a usar este regalo de la mejor forma posible.
 - Lo que significa: Tomar buenas decisiones y ponerlas en práctica
 - Para que así logremos pintar una obra digna de admirar.
-- Una obra que refleje sincera felicidad 
+- Una obra que refleje una vida de auténtica felicidad
 
 ### Jehová nos da herramientas para que tomemos buenas decisiones
 
@@ -103,7 +103,7 @@ porque obedezco tus órdenes.
 - Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decision que vayamos a tomar.
 
 1. **NO SE APRESURE**
-- Al igual que un artista se toma su tiempo para pensar en qué quiere pintar.
+- Al igual que un artista se toma su tiempo para pensar en lo que quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Esto concuerda con lo que leemos en:
 
@@ -119,7 +119,7 @@ porque obedezco tus órdenes.
 	- Como se sentirá Jehova al respecto? Afectara en la relación que tengo con el? 
 	
 - Debemos responder estas preguntas con sinceridad y para eso tenemos que tomarnos el tiempo que sea necesario.
-- Y que nos ayudara a responder las preguntas que acabamos de hacernos con sabiduría? 
+- Y que nos ayudara a responder con sabiduría las preguntas que acabamos de hacernos? 
 - Ahi viene el 2do Paso
 
 2. **OREMOS A JEHOVA PIDIENDO SABIDURIA**
@@ -259,7 +259,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Recuerde el quiere que seamos felices de verdad, y no solo ahora, también en el futuro.
 - Por eso, esforcémonos por usar bien nuestro "pincel", tomando decisiones que nos lleven a una vida feliz. 
 - Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado
-- Y lo mas importante, Jehova nos dirá:
-- Bien hecho, me gusta mucho lo que 
-
-[hola](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=20015002&pub=nwtsty)
+- Se imagina a Jehova viendo los cuadros que cada uno de nosotros está pintando, y que nos diga:
+- Bien hecho, me gusta mucho lo que haz pintado, sé que en algunos momentos no lo tuviste fácil, pero lo lograste, a mis ojos tu vida es una obra de arte. Y me alegro que sigas trabajando en ella día a día. 
+- La pregunta es: Su cuadro será uno de esos?
+- Pues eso depende de usted y de cómo use su pincel
