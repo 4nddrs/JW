@@ -57,18 +57,17 @@ porque obedezco tus órdenes.
 - El salmista se comportaba con mas entendimiento que los hombres mayores, porque obedecía a Jehová.
 - Esto nos enseña a los Jovenes que podemos actuar con sabiduría, la edad no debe ser una excusa para creer que no podemos ser sabios. 
 - Ya que tenemos a Jehova y sus enseñanzas como una de nuestras herramientas.
-
-- A lo largo de nuestra vida tendremos que tomar varias decisiones y puede que en la Biblia no haya un mandato especifico para cada situación
-- Pero nos da principios para que pensemos como Jehová piensa.
+---
+- A lo largo de nuestra vida tendremos que tomar varias decisiones y puede que en la Biblia no haya un mandato especifico para cada situación.
 - Tal vez se le pase por la mente  que todo seria más sencillo si Jehová nos hubiera dado reglas para cada circunstancia.
-
-- Pero la verdad… es que Jehová no nos da leyes estrictas para todo porque eso nos limitaría
-- Jehová no quiere que sigamos reglas como simples peones
-- El quiere que aprendamos a pensar como el
-
-- Por eso buscar principios bíblicos es clave
+---
+- Pero El no lo hizo, ya que eso nos limitaría
+- Jehová **NO** quiere que sigamos reglas como simples peones
+- El quiere que aprendamos a pensar como El
+---
+- Por eso Jehová nos da principios Bíblicos para que lo logremos
 - Jehová nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos pueda ayudar.
-
+---
 - Pensemos en la Biblia como un album de cuadros, en ella encontramos obras de arte, que fueron pintadas por hombres y mujeres fieles.
 - Estos ejemplos de fe construyeron vidas felices sirviendo a Jehova, nosotros queremos lo mismo
 - Así que aprendamos de ellos, para poder imitarlos.
@@ -82,7 +81,8 @@ porque obedezco tus órdenes.
 >
 >La capacidad de pensar velará por ti y el discernimiento te protegerá
 
-- Jehova quiere que utilicemos todo el conocimiento que tenemos a la mano para educar a nuestra conciencia
+- Jehova quiere que utilicemos todo el conocimiento que tenemos a la mano para educar a la segunda herramienta 
+- Y esa es: **La conciencia**
 - La conciencia es un increíble regalo de parte de Jehova,
 - Educarla es **clave** para tomar buenas decisiones.
 - Ahora bien... cuando debemos educar nuestra conciencia? 
@@ -100,12 +100,13 @@ porque obedezco tus órdenes.
 ## Que pasos hay que seguir para tomar una buena decision?
 
 - Hace un momento comparamos a la Biblia con un album que contiene varios cuadros hermosos
-- Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decision que vayamos a tomar.
+- Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decisión que vayamos a tomar.
+- Vamos a analizar juntos esta serie de pasos:
 
 1. **NO SE APRESURE**
 - Al igual que un artista se toma su tiempo para pensar en lo que quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
-- Esto concuerda con lo que leemos en:
+- Y Jehová nos dio esta instrucción en:
 
 >[!Deuteronomio 32:29]
 > ¡Ojalá fueran sabios! Reflexionarían sobre todo esto. Pensarían en cómo acabarán.
@@ -147,7 +148,8 @@ porque obedezco tus órdenes.
 3. **INVESTIGUE A FONDO**
 - El conocimiento nos lleva a la sabiduría
 - Por eso debemos buscarlo como algo muy valioso
-- El Rey Salomon sabia muy bien esto, por eso escribió en: 
+- El Rey Salomon sabia muy bien esto
+- Es más, el hizo una comparación muy interesante en:
 
 >[! Proverbios 2: 4, 5]
 Si sigues buscando esto como si fuera plata
@@ -161,7 +163,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Pero para poder aprovecharlas al máximo debemos aprender a usarlas muy bien
 - De esta forma podremos encontrar tesoros muy valiosos, y este conocimiento que obtengamos nos llevara a tener sabiduría, y podremos tomar decisiones basadas en la Biblia.
 
-- Ahora bien, Jehova puede ayudarnos de otra manera
+- Ahora bien, Jehova puede responder a nuestras oraciones de otra manera
 - Por medio de nuestros hermanos
 - Si se esta enfrentando a una decision y tiene dudas sobre que hacer
 - Puede pedirle consejo a un cristianos maduro
@@ -178,7 +180,8 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Recordemos que El siempre hace todo con un propósito
 - Hay un dicho muy popular que se utiliza al momento de tomar decisiones y es:
 - **Sigue a tu Corazón** 
-- Esto dando a entender que nos guiemos por nuestras emociones de ese momento, que opina de Jehova de esto: 
+- Esto dando a entender que nos guiemos por nuestras emociones de ese momento
+- Pero que opina de Jehova de esto: 
 
 >[! Proverbios 28:26]
 >El que confía en su propio corazón es un insensato, pero el que actúa con sabiduría escapará.
