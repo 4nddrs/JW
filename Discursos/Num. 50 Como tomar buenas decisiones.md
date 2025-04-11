@@ -1,7 +1,7 @@
 # Num. 50 Como tomar buenas decisiones
 ### Introducción
 
-![[1.png]]
+<div style="text-align: center;"> <img src="num50-1.png" width="400"> </div>
 
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
@@ -66,8 +66,9 @@ porque obedezco tus órdenes.
 - El quiere que aprendamos a pensar como El
 ---
 - Por eso Jehová nos da principios Bíblicos para que lo logremos
-- Jehová nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos pueda ayudar.
+- Jehová nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos puede ayudar.
 ---
+<div style="text-align: center;"> <img src="num50-3.png" width="300"> </div>
 - Pensemos en la Biblia como un album de cuadros, en ella encontramos obras de arte, que fueron pintadas por hombres y mujeres fieles.
 - Estos ejemplos de fe construyeron vidas felices sirviendo a Jehova, nosotros queremos lo mismo
 - Así que aprendamos de ellos, para poder imitarlos.
@@ -104,6 +105,7 @@ porque obedezco tus órdenes.
 - Vamos a analizar juntos esta serie de pasos:
 
 1. **NO SE APRESURE**
+<div style="text-align: center;"> <img src="num50-2.png" width="300"> </div>
 - Al igual que un artista se toma su tiempo para pensar en lo que quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Y Jehová nos dio esta instrucción en:

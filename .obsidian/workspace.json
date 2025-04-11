@@ -74,7 +74,8 @@
               "title": "Marcadores"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -166,7 +167,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 300
+    "width": 387.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -181,9 +182,30 @@
   },
   "active": "1a078cd96a1b3243",
   "lastOpenFiles": [
+    "num50-3.png",
+    "Discursos/Num. 50 Como tomar buenas decisiones.md",
+    "num50-2.png",
+    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
+    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
+    "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
+    "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
+    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
+    "Apuntes/Visita del Superintendente 01-2025",
+    "num50-1.png",
+    "Puntos Sobresalientes/Joven.md",
+    "Puntos Sobresalientes/Botiquín Contra la Ansiedad.md",
+    "Puntos Sobresalientes",
+    "Perlas/Proverbios/Capítulo 5.md",
+    "Perlas/Proverbios/Capítulo 4.md",
+    "Perlas/Proverbios/Capítulo 2.md",
+    "Perlas/Proverbios/Capítulo 3.md",
+    "Perlas/Proverbios/Capítulo 1.md",
+    "Perlas/Proverbios",
+    "Perlas",
+    "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
+    "Apuntes",
     "Apuntes de la Escuela del Ministerio del Reino.md",
     "conflict-files-obsidian-git.md",
-    "Discursos/Num. 50 Como tomar buenas decisiones.md",
     "Preguntas.md",
     "Discursos",
     "Bienvenido.md"
