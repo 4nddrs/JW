@@ -11,10 +11,14 @@
             "id": "9f120b296b2e204d",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {},
+              "type": "markdown",
+              "state": {
+                "file": "Puntos Sobresalientes/Joven.md",
+                "mode": "source",
+                "source": false
+              },
               "icon": "lucide-file",
-              "title": "Nueva pestaña"
+              "title": "Joven"
             }
           }
         ]

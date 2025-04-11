@@ -86,5 +86,66 @@
 >[! 2 Timoteo 1:5]
 >Porque me acuerdo de tu **fe sin hipocresía**, que tuvieron primero tu abuela Loida y tu madre Eunice, y que estoy seguro de que tú también tienes.
 
+>[! 2 Timoteo 4:5 ]
+>Pero tú mantén tu buen juicio en todas las cosas, aguanta las dificultades, haz tu trabajo de evangelizador y cumple completamente tu ministerio.
+
+>[! Eclesiastés 12:13, 14]
+>Después de oírlo todo, la conclusión es esta: teme al Dios verdadero y obedece sus mandamientos, porque eso es todo lo que el hombre debe hacer.
+>
+>Porque el Dios verdadero juzgará todas las acciones, incluso todas las cosas ocultas, para determinar si son buenas o malas.
+
+>[! 1 Tesalonisenses 4:4]
+>Cada uno de ustedes debe saber controlar su propio cuerpo para mantenerlo santo y honorable
+
+>[! Proverbios 22:17]
+>Presta atención y escucha las palabras de los sabios para que te concentres en mi conocimiento
+
+>[! Proverbios 9:10]
+>El temor de Jehová es el comienzo de la sabiduría, y el conocimiento del Santísimo es entendimiento.
+
+>[! Proverbios 25:17]
+>No pongas a menudo tu pie en la casa de tu prójimo para que no se harte de ti y llegue a odiarte.
+
+>[! Salmo 19:14]
+>Que las palabras de mi boca y las reflexiones de mi corazón sean de tu agrado, oh, Jehová, mi Roca y mi Redentor.
+
+>[! Salmo 25:14]
+>La amistad íntima con Jehová es para quienes le temen, y él les da a conocer su pacto.
+
+>[! Hechos 15:29(b)]
+>”…” Si evitan por completo estas cosas, les irá bien. ¡Que tengan buena salud!”.
+
+>[! Proverbios 13:12]
+>Las expectativas que tardan en cumplirse enferman el corazón
+
+>[! Malaquias 3:18]
+>”…”verán la diferencia entre alguien justo y alguien malvado, entre el que sirve a Dios y el que no le sirve”
+
+>[! Proverbios 23:15]
+>Hijo mío, si tu corazón se hace sabio, mi propio corazón se alegrará.  16 Lo más profundo de mi ser se llenará de alegría cuando tus labios hablen lo que es justo
+
+>[! 1 Juan 3:20]
+>incluso si nuestro corazón nos condena, porque Dios es más grande que nuestro corazón y lo sabe todo.
+
+>[! Galatas 5:16]
+>”…” sigan andando de acuerdo con el espíritu y así no harán realidad ningún deseo de la carne.
+
+>[! Salmo 39:6 (b)]
+>”…” Corre de acá para allá en vano. Amontona riquezas sin saber quién las va a disfrutar
+
+```python
+Este versículo me ayuda a ver las cosas materiales desde el punto de vista adecuado, no tendría sentido sacrificar el valioso tiempo que le dedicamos a Jehová para conseguir más cosas en sentido material.
+```
+>[! Efesios 5:10]
+> Sigan asegurándose de lo que le agrada al Señor
+
+>[! 1 Corintios 9:25, 26]
+>”…” todos los que participan en una competencia demuestran autocontrol en todas las cosas “…” no corro sin una meta ni peleo dándole golpes al aire.
+
+>[! Eclesiastés 5:10]
+>El que ama el dinero nunca estará satisfecho con su dinero
+
+
+
 
 
