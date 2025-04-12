@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
+                "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Se pondrá usted de parte de la adoración verdadera (Discurso Público)"
+              "title": "Num. 50 Como tomar buenas decisiones"
             }
           }
         ]
@@ -49,7 +49,7 @@
         "state": {
           "type": "search",
           "state": {
-            "query": "",
+            "query": "Album",
             "matchingCase": false,
             "explainSearch": false,
             "collapseAll": false,
@@ -166,11 +166,19 @@
   },
   "active": "9f120b296b2e204d",
   "lastOpenFiles": [
+    "num50-3.png",
+    "num50-2.png",
+    "num50-1.png",
+    "/num50-3.png",
+    "/num50-2.png",
+    "/Discursos/Num. 50 Como tomar buenas decisiones.md",
+    "/Discursos",
+    "/num50-1.png",
+    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
     "Puntos Sobresalientes/Joven.md",
     "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
     "Discursos/Num. 50 Como tomar buenas decisiones.md",
     "Preguntas.md",
-    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
     "Sin título.canvas",
     "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
     "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
@@ -189,8 +197,6 @@
     "Perlas/Proverbios/Capítulo 5.md",
     "Perlas/Proverbios",
     "Perlas",
-    "/Discursos/Num. 50 Como tomar buenas decisiones.md",
-    "/Discursos",
     "Discursos"
   ]
 }

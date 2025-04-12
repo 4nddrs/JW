@@ -164,7 +164,6 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Tenemos muchas ayudas, como las herramientas de investigación y las publicaciones basadas en la Biblia que nos da la organización  
 - Pero para poder aprovecharlas al máximo debemos aprender a usarlas muy bien
 - De esta forma podremos encontrar tesoros muy valiosos, y este conocimiento que obtengamos nos llevara a tener sabiduría, y podremos tomar decisiones basadas en la Biblia.
-
 - Ahora bien, Jehova puede responder a nuestras oraciones de otra manera
 - Por medio de nuestros hermanos
 - Si se esta enfrentando a una decision y tiene dudas sobre que hacer
