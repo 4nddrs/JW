@@ -1,7 +1,7 @@
 # Num. 50 Como tomar buenas decisiones
 ### Introducción
 
-<div style="text-align: center;"> <img src="num50-1.png" width="400"> </div>
+<div style="text-align: center;"> <img src="num50-1.1.png" width="400"> </div>
 
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
@@ -62,7 +62,8 @@ porque obedezco tus órdenes.
 - Tal vez se le pase por la mente  que todo seria más sencillo si Jehová nos hubiera dado reglas para cada circunstancia.
 ---
 - Pero El no lo hizo, ya que eso nos limitaría
-- Jehová **NO** quiere que sigamos reglas como simples peones
+- Jehová **NO** quiere que sigamos reglas sin pensar
+- Él desea que lo hagamos con el corazón, por amor y convicción
 - El quiere que aprendamos a pensar como El
 ---
 - Por eso Jehová nos da principios Bíblicos para que lo logremos
@@ -161,12 +162,14 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Es interesante que Salomon compara el conocimiento a tesoros escondidos
 - Esto nos enseña que para poder encontrarlos muchas veces tendremos que dedicar tiempo y esfuerzo, en otras palabras tendremos que **investigar a fondo**
 - Y como lo hacemos?
+---
 - Tenemos muchas ayudas, como las herramientas de investigación y las publicaciones basadas en la Biblia que nos da la organización  
 - Pero para poder aprovecharlas al máximo debemos aprender a usarlas muy bien
 - De esta forma podremos encontrar tesoros muy valiosos, y este conocimiento que obtengamos nos llevara a tener sabiduría, y podremos tomar decisiones basadas en la Biblia.
 - Ahora bien, Jehova puede responder a nuestras oraciones de otra manera
+---
 - Por medio de nuestros hermanos
-- Si se esta enfrentando a una decision y tiene dudas sobre que hacer
+- Si se esta enfrentando a una decisión y tiene dudas sobre que hacer
 - Puede pedirle consejo a un cristianos maduro
 - **Pero** hay un detalle, no hagamos esto (entregar el pincel 🖌️)
 - No hagamos que el hermano pinte por nosotros nuestro cuadro
