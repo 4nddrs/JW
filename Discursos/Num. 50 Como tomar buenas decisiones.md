@@ -5,7 +5,7 @@
 
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
-- Es una obra hecha a mano, por lo que el pintor seguramente usó uno de estos: (🖌️)  
+- Es una obra hecha a con pinturas, por lo que el pintor seguramente usó uno de estos: (🖌️)  
 - Así es, un pincel
 - Con habilidad, paciencia y gracias a este instrumento, pudo crear esta maravillosa pintura.  
 
@@ -69,7 +69,7 @@ porque obedezco tus órdenes.
 - Por eso Jehová nos da principios Bíblicos para que lo logremos
 - Jehová nos conoce mejor que nadie así que tengamos la seguridad de que siempre encontraremos algo que nos puede ayudar.
 ---
-<div style="text-align: center;"> <img src="num50-3.png" width="300"> </div>
+<div style="text-align: center;"> <img src="num50-3.1.png" width="300"> </div>
 - Pensemos en la Biblia como un album de cuadros, en ella encontramos obras de arte, que fueron pintadas por hombres y mujeres fieles.
 - Estos ejemplos de fe construyeron vidas felices sirviendo a Jehova, nosotros queremos lo mismo
 - Así que aprendamos de ellos, para poder imitarlos.
@@ -101,12 +101,15 @@ porque obedezco tus órdenes.
 - Pero que debemos hacer cuando llega el momento de tomar una decision muy importante
 ## Que pasos hay que seguir para tomar una buena decision?
 
-- Hace un momento comparamos a la Biblia con un album que contiene varios cuadros hermosos
-- Podemos aprender de ellos, Jehova se encargo de que en la Biblia encontremos una serie de pasos para no arrepentirnos de ninguna decisión que vayamos a tomar.
+- Hace un momento comparamos a la Biblia con un álbum que contiene varios cuadros hermosos, lo recuerda?
+<div style="text-align: center;"> <img src="num50-4.png" width="300"> </div>
+- Pues podemos aprender de ellos, tal como un pintor usa un álbum de cuadros para guiarse e inspirarse.
+- De forma similar, nosotros podemos hacer lo mismo.
+- Jehova nos dejo en la Biblia una serie de pasos para no arrepentirnos de ninguna decisión que vayamos a tomar.
 - Vamos a analizar juntos esta serie de pasos:
 
 1. **NO SE APRESURE**
-<div style="text-align: center;"> <img src="num50-2.png" width="300"> </div>
+<div style="text-align: center;"> <img src="num50-2.1.png" width="300"> </div>
 - Al igual que un artista se toma su tiempo para pensar en lo que quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Y Jehová nos dio esta instrucción en:
@@ -141,7 +144,7 @@ porque obedezco tus órdenes.
 		- Por que?
 		- Porque vivimos en los últimos días, y tener la sabiduría de Jehova es la clave para tomar buenas decisiones, sean grandes o pequeñas
 	2. Jehova nos da sabiduría generosamente y sin reproches
-		- Jehova no nos critica, ni se burla de nosotros por pedirle sabiduría
+		- Jehova no nos critica, por pedirle sabiduría
 		- Todo lo contrario El quiere compartir su sabiduría, por eso lo hace con amor y de forma generosa.
 	
 - Ahora bien: como responde Jehova a nuestras oraciones?
@@ -172,6 +175,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Si se esta enfrentando a una decisión y tiene dudas sobre que hacer
 - Puede pedirle consejo a un cristianos maduro
 - **Pero** hay un detalle, no hagamos esto (entregar el pincel 🖌️)
+- No le entreguemos nuestro pincel a nuestro hermano
 - No hagamos que el hermano pinte por nosotros nuestro cuadro
 - No le pidamos que tome la decision por nosotros
 - Recuerde Jehova nos dio este regalo a cada uno de nosotros, y cada uno se tiene que hacer cargo de sus decisiones
@@ -194,7 +198,12 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Si lo hiciéramos seriamos insensatos y no terminaría bien
 - Pero si actuamos con sabiduría tal como dice el texto, entonces nos ira bien.
 ---
-- Muy bien, ya vimos una serie de pasos que debemos seguir para tomar una decision
+- Muy bien, ya vimos una serie de pasos que debemos seguir para tomar una buena decisión. 
+- Recordemos:
+	1. No se apresure
+	2. Oré pidiendo sabiduría
+	3. Investigue a fondo
+	4. Analice sus motivos
 - Y eso esta muy bien, podríamos decir que:
 - Tal como un pintor estamos planeando los trazos que vamos a pintar
 - Pero, e aquí la pregunta: Ya hemos pintado algo?
@@ -265,7 +274,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Nunca tendremos que arrepentirnos de nada
 - Recuerde el quiere que seamos felices de verdad, y no solo ahora, también en el futuro.
 - Por eso, esforcémonos por usar bien nuestro "pincel", tomando decisiones que nos lleven a una vida feliz. 
-- Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado
+- Y cuando miremos el cuadro de nuestra vida, nos sentiremos orgullosos de lo que hemos creado.
 - Se imagina a Jehova viendo los cuadros que cada uno de nosotros está pintando, y que nos diga:
 - Bien hecho, me gusta mucho lo que haz pintado, sé que en algunos momentos no lo tuviste fácil, pero lo lograste, a mis ojos tu vida es una obra de arte. Y me alegro que sigas trabajando en ella día a día. 
 - La pregunta es: Su cuadro será uno de esos?
