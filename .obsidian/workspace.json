@@ -14,7 +14,7 @@
               "type": "markdown",
               "state": {
                 "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
-                "mode": "source",
+                "mode": "preview",
                 "source": false
               },
               "icon": "lucide-file",
@@ -166,7 +166,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 387.5
+    "width": 301.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -179,8 +179,13 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "a414bced316954f0",
+  "active": "1a078cd96a1b3243",
   "lastOpenFiles": [
+    "num50-5.png",
+    "num50-4.png",
+    "num50-3.1.png",
+    "num50-1.1.png",
+    "Num50-2.1.png",
     "num50-3.png",
     "Discursos/Num. 50 Como tomar buenas decisiones.md",
     "num50-2.png",
