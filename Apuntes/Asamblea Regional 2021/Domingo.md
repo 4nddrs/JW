@@ -12,7 +12,6 @@
 - Centrarnos en las bendiciones de adelante, no en lo que dejamos atrás.
 - Demostramos fe cuando apoyamos las decisiones de la organización.
 
-
 ### Rahab
 
 - Rahab estaba convencida de que si ayudaba a los espías, Jehová la ayudaría a ella.
