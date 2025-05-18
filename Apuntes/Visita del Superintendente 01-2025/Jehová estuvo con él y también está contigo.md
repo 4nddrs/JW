@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+
 - José no tuvo una vida sencilla
 - La vida puede darnos amargas sorpresas
 - Puede que tengamos cosas que nos quiten la paz
@@ -200,6 +200,3 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 >[! Important] 
 >Los leales siempre se vuelven a ver 
 
-
-
->>>>>>> origin/main

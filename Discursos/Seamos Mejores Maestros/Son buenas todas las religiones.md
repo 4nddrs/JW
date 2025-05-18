@@ -1,4 +1,4 @@
-
+# Son buenas todas las religiones
 ## ¿Por qué las personas deciden unirse a una religión?
 
 - Muchas personas lo hacen porque quieren acercarse a Dios y poder conocerlo mejor.

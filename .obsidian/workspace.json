@@ -25,12 +25,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+                "file": "Apuntes/Asamblea Regional 2021/Domingo.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Num. 50 Como tomar buenas decisiones"
+              "title": "Domingo"
             }
           }
         ],
@@ -66,7 +66,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "tag:#¡Que",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -179,7 +179,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 381.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -192,10 +192,22 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "cb2bfa311be100aa",
+  "active": "d2c2f3dc8e54b3b1",
   "lastOpenFiles": [
-    "Imagenes/Disc/erer.md",
+    "Apuntes/Asamblea Regional 2021/Sabado.md",
+    "Apuntes/Asamblea Regional 2021/Domingo.md",
+    "Apuntes/Asamblea Regional 2021/Viernes.md",
+    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
+    "Apuntes/Asamblea Regional 2021",
+    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
+    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
+    "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
+    "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
+    "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
+    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
+    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
     "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+    "Imagenes/Disc/erer.md",
     "Imagenes/Disc",
     "Imagenes/Sin título.md",
     "conflict-files-obsidian-git.md",
@@ -208,15 +220,7 @@
     "Imagenes/Disc.50/Num50-2.1.png",
     "Imagenes/Disc.50/num50-2.png",
     "Imagenes/Disc.50/num50-1.1.png",
-    "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
     "Apuntes/Escuelas Teocraticas",
-    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
-    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
-    "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
-    "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
-    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
-    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
-    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
     "Discursos/Seamos Mejores Maestros",
     "Discursos/Tesoros de la Biblia",
     "Discursos/Publicos",
@@ -230,7 +234,6 @@
     "Perlas/Proverbios/Capítulo 2.md",
     "Perlas/Proverbios/Capítulo 3.md",
     "Perlas/Proverbios/Capítulo 1.md",
-    "Perlas/Proverbios",
     "Apuntes de la Escuela del Ministerio del Reino.md",
     "Preguntas.md",
     "Bienvenido.md"

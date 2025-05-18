@@ -1,4 +1,4 @@
-<<<<<<< HEAD
+
 - Jesus nos dio un encargo muy especial
 - En Mateo 28:19
 - Jesús nos encargo: Hacer discípulos
@@ -66,5 +66,4 @@
 - Tener más responsabilidades no significa que debemos descuidar lo más importante.
 - Ver a los estudiantes progresar nos da alegría y nos motiva a seguir esforzarnos
 - Vale la pena esforzarnos por conseguir estudios bíblicos, por eso no nos rindamos
->>>>>>> origin/main
 - Jehová quiere que nos esforcemos, y con su ayuda lograremos alcanzar esta meta.
