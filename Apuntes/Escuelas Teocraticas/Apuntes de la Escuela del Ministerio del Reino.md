@@ -350,7 +350,7 @@
 - Jeremías. 31:3
 - Jehová no espera que volvamos solos, el promete ayudarnos
 - Nunca dudé que Jehová lo está atrayendo
-- Volver no es fácil, pero él no espera que lo hagas solo
+- Volver no es fácil, pero él no espera que lo hagas solo.
 
 1. Mostrar amor
 2. Ser sus amigos
