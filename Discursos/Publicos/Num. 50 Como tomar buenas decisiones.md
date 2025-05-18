@@ -1,7 +1,7 @@
 # Num. 50 Como tomar buenas decisiones
 ### Introducción
 
-<div style="text-align: center;"> <img src="Imagenes/Disc.50/num50-1.1.png" width="400"> </div>
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.50/num50-1.1.png" width="400"> </div>
 
 - ¿No les parece este un hermoso cuadro?
 - Sin duda, el artista que lo pintó dedicó mucho tiempo y esfuerzo.  
