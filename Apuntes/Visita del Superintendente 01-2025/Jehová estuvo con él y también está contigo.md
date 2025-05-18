@@ -15,7 +15,7 @@
 - Jehová seguía con José pese a todo
 
 > [! Lección ]
--No tengamos dudas de que Jehová siempre nos estará acompañando en todo momento
+No tengamos dudas de que Jehová siempre nos estará acompañando en todo momento
 #### José se puso a trabajar
 - Génesis 39:6, 23
 - Potifar no tenía que preocuparse de nada, ya que José se encargaba de todo

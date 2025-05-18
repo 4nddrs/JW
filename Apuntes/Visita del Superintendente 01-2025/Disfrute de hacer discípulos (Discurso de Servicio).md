@@ -1,6 +1,6 @@
 - Jesus nos dio un encargo muy especial
 - En Mateo 28:19
-- Jesús nos encargo: Hacer discipulos
+- Jesús nos encargo: Hacer discípulos
 - Como podemos tener un estudio de la Biblia
 - Hagamos dos cosas:
 	- Orar a Jehová
