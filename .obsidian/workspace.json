@@ -25,12 +25,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+                "file": "Imagenes/Disc/erer.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Num. 50 Como tomar buenas decisiones"
+              "title": "erer"
             }
           }
         ],
@@ -192,11 +192,12 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "a414bced316954f0",
+  "active": "cb2bfa311be100aa",
   "lastOpenFiles": [
+    "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+    "Imagenes/Disc/erer.md",
     "Imagenes/Disc",
     "Imagenes/Sin título.md",
-    "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
     "conflict-files-obsidian-git.md",
     "Imagenes/Disc.50/num50-1.png",
     "Imagenes/Disc.50/num50-5.png",
@@ -230,7 +231,6 @@
     "Perlas/Proverbios/Capítulo 3.md",
     "Perlas/Proverbios/Capítulo 1.md",
     "Perlas/Proverbios",
-    "Perlas",
     "Apuntes de la Escuela del Ministerio del Reino.md",
     "Preguntas.md",
     "Bienvenido.md"
