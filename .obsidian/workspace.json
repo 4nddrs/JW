@@ -23,14 +23,14 @@
             "id": "cb2bfa311be100aa",
             "type": "leaf",
             "state": {
-              "type": "split-diff-view",
+              "type": "markdown",
               "state": {
-                "aFile": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
-                "bFile": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
-                "aRef": ""
+                "file": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "diff",
-              "title": "Diff: Anime a un estudiante de la Biblia que está afrontando oposición de la familia"
+              "icon": "lucide-file",
+              "title": "Anime a un estudiante de la Biblia que está afrontando oposición de la familia"
             }
           }
         ],
