@@ -78,7 +78,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 224.5
+    "width": 386.5
   },
   "right": {
     "id": "a788a90b54e83c79",
@@ -179,7 +179,7 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "8b228a97c5b75ee0",
+  "active": "a414bced316954f0",
   "lastOpenFiles": [
     "Apuntes/Asamblea Regional 2022/Sabado.md",
     "Apuntes/Asamblea Regional 2022/Domingo.md",
