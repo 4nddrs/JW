@@ -25,12 +25,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Apuntes/Asamblea Regional 2021/Domingo.md",
+                "file": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Domingo"
+              "title": "Anime a un estudiante de la Biblia que está afrontando oposición de la familia"
             }
           }
         ],
@@ -66,7 +66,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "tag:#¡Que",
+                "query": "",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -179,7 +179,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 381.5
+    "width": 319.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -194,8 +194,10 @@
   },
   "active": "d2c2f3dc8e54b3b1",
   "lastOpenFiles": [
-    "Apuntes/Asamblea Regional 2021/Sabado.md",
     "Apuntes/Asamblea Regional 2021/Domingo.md",
+    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+    "Discursos/Conversaciones",
+    "Apuntes/Asamblea Regional 2021/Sabado.md",
     "Apuntes/Asamblea Regional 2021/Viernes.md",
     "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
     "Apuntes/Asamblea Regional 2021",
@@ -228,7 +230,6 @@
     "Apuntes/Visita del Superintendente 01-2025",
     "Puntos Sobresalientes/Joven.md",
     "Puntos Sobresalientes/Botiquín Contra la Ansiedad.md",
-    "Puntos Sobresalientes",
     "Perlas/Proverbios/Capítulo 5.md",
     "Perlas/Proverbios/Capítulo 4.md",
     "Perlas/Proverbios/Capítulo 2.md",
