@@ -23,14 +23,14 @@
             "id": "cb2bfa311be100aa",
             "type": "leaf",
             "state": {
-              "type": "markdown",
+              "type": "split-diff-view",
               "state": {
-                "file": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
-                "mode": "source",
-                "source": false
+                "aFile": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+                "bFile": "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+                "aRef": ""
               },
-              "icon": "lucide-file",
-              "title": "Anime a un estudiante de la Biblia que está afrontando oposición de la familia"
+              "icon": "diff",
+              "title": "Diff: Anime a un estudiante de la Biblia que está afrontando oposición de la familia"
             }
           }
         ],
@@ -192,10 +192,10 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "d2c2f3dc8e54b3b1",
+  "active": "cb2bfa311be100aa",
   "lastOpenFiles": [
-    "Apuntes/Asamblea Regional 2021/Domingo.md",
     "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+    "Apuntes/Asamblea Regional 2021/Domingo.md",
     "Discursos/Conversaciones",
     "Apuntes/Asamblea Regional 2021/Sabado.md",
     "Apuntes/Asamblea Regional 2021/Viernes.md",

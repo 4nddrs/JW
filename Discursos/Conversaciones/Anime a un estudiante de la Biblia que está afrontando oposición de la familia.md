@@ -1,7 +1,7 @@
 **Texto base:** 1 Crónicas 28:20  
 **Duración:** 5 minutos  
 **Personajes:**  
-- 🔵 **Andrés (Amigo de Miguel)**  
+- 🔵 **Andrés (amigo de Miguel)**  
 - 🟢 **Miguel (estudiante desanimado)**
 
 ---
