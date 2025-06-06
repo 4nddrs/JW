@@ -32,9 +32,9 @@ Pero **¿sabías que en la Biblia hay un consejo que se dio en un momento muy pa
 Fue dado por un padre que sabía que su hijo iba a enfrentar algo difícil.
 
 Ese padre fue el rey David, y su hijo era Salomón. 
-La tarea que tenía delante era enorme: construir el templo de Jehová.  
+La tarea que tenía delante era enorme: **construir el templo de Jehová.**  
 
-David sabía que su hijo podría sentir miedo o inseguridad, así que le dio palabras que hoy también pueden darte fuerzas a ti.
+David sabía que su hijo podría sentir miedo o inseguridad, así que le dijo unas palabras que hoy también pueden darte fuerzas a ti.
 
 Veamos lo que le dijo en **1 Crónicas 28:20**.  
 *¿Qué podemos recordar cuando sentimos miedo o desánimo al servir a Jehová?*
@@ -53,6 +53,7 @@ Veamos lo que le dijo en **1 Crónicas 28:20**.
 
 🔵 **Andrés:**  
 ¡Qué palabras tan poderosas! David sabía que la tarea de Salomón sería difícil, y por eso lo animó a ser fuerte.  
+
 Pero no era solo una motivación humana: ¡David le aseguró que Jehová estaría con él!  
 Eso le daría la fuerza que tanto necesitaba.
 
@@ -81,7 +82,8 @@ Ese texto me dio justo lo que necesitaba para no rendirme.
 🔵 **Andrés:**  
 Me alegra escucharlo. Esa es la fuerza que nos da la Palabra de Dios.  
 No hay duda, Jehová siempre nos da lo que necesitamos, justo a tiempo.  
-Y cuéntame, ¿cómo te va preparando tu primera asignación?
+
+Y cuéntame, ¿cómo te va preparando tu primer discurso?
 
 🟢 **Miguel:**  
 Creo que va bien. Si tienes tiempo, te la puedo enseñar y podrías darme alguna sugerencia.

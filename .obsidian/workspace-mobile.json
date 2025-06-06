@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
+                "file": "Perlas/Proverbios/Capítulo 11.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Apuntes de la Escuela del Ministerio del Reino"
+              "title": "Capítulo 11"
             }
           }
         ]
@@ -98,7 +98,7 @@
         "state": {
           "type": "backlink",
           "state": {
-            "file": "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
+            "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
             "collapseAll": false,
             "extraContext": false,
             "sortOrder": "alphabetical",
@@ -117,7 +117,7 @@
         "state": {
           "type": "outgoing-link",
           "state": {
-            "file": "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
+            "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
             "linksCollapsed": false,
             "unlinkedCollapsed": true
           },
@@ -131,7 +131,7 @@
         "state": {
           "type": "outline",
           "state": {
-            "file": "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
+            "file": "Discursos/Num. 50 Como tomar buenas decisiones.md",
             "followCursor": false,
             "showSearch": false,
             "searchQuery": ""
@@ -166,33 +166,51 @@
   },
   "active": "c6eb910465f4995b",
   "lastOpenFiles": [
-    "num50-5.png",
-    "num50-4.png",
-    "num50-1.png",
-    "num50-3.png",
-    "num50-2.png",
-    "Num50-2.1.png",
-    "Perlas/Proverbios/Capítulo 5.md",
-    "Perlas/Proverbios/Capítulo 1.md",
+    "Perlas/Proverbios/Capítulo 10.md",
+    "Perlas/Proverbios/Capítulo 11.md",
+    "Perlas/Proverbios/Capituló 9.md",
+    "Perlas/Proverbios/Capítulo 8.md",
+    "Perlas/Proverbios/Capítulo 7.md",
+    "Perlas/Proverbios/Capítulo 6.md",
     "Perlas/Proverbios/Capítulo 4.md",
-    "Perlas/Proverbios/Capítulo 3.md",
-    "Perlas/Proverbios/Capítulo 2.md",
-    "Perlas/Proverbios",
-    "Perlas",
+    "Perlas/Proverbios/Capítulo 5.md",
+    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
+    "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+    "Perlas/Proverbios/Capítulo 1.md",
     "Puntos Sobresalientes/Botiquín Contra la Ansiedad.md",
     "Puntos Sobresalientes/Joven.md",
-    "Puntos Sobresalientes",
-    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
-    "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
-    "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
-    "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
-    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
-    "Apuntes/Apuntes de la Escuela del Ministerio del Reino.md",
-    "Apuntes/Visita del Superintendente 01-2025",
-    "Apuntes",
-    "num50-1.1.png",
-    "num50-3.1.png",
+    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
     "Discursos/Num. 50 Como tomar buenas decisiones.md",
-    "Discursos"
+    "Imagenes/Disc.50/num50-1.png",
+    "/Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
+    "/Imagenes/Disc.50/num50-1.png",
+    "/Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
+    "Discursos/Publicos",
+    "Discursos/Conversaciones",
+    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
+    "Discursos/Tesoros de la Biblia",
+    "Apuntes/Asamblea Regional 2022/Domingo.md",
+    "Apuntes/Asamblea Regional 2022/Sabado.md",
+    "Apuntes/Asamblea Regional 2022/Viernes.md",
+    "Apuntes/Asamblea Regional 2022",
+    "Apuntes/Asamblea Regional 2021/Domingo.md",
+    "Apuntes/Asamblea Regional 2021/Sabado.md",
+    "Apuntes/Asamblea Regional 2021/Viernes.md",
+    "Apuntes/Asamblea Regional 2021",
+    "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
+    "Apuntes/Escuelas Teocraticas",
+    "Imagenes/Disc.50/num50-5.png",
+    "Imagenes/Disc.50/num50-4.png",
+    "Imagenes/Disc.50/num50-3.png",
+    "Imagenes/Disc.50/num50-2.png",
+    "Imagenes/Disc.50/Num50-2.1.png",
+    "Imagenes/Disc.50/num50-1.1.png",
+    "Imagenes/Disc.50/num50-3.1.png",
+    "Imagenes/Disc.50",
+    "Imagenes",
+    "Discursos/Seamos Mejores Maestros",
+    "/Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
+    "/Imagenes/Disc.50/num50-5.png",
+    "/Apuntes/Visita del Superintendente 01-2025"
   ]
 }

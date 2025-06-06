@@ -10,8 +10,7 @@
 
 ---
 
-## Vamos a hacer una comparación… como la de esta imagen 🖼️
-
+## Vamos a hacer una comparación… como la de esta imagen 
 - Imaginemos que vamos a “cernir” estas 4000 religiones, como si estuviéramos usando un colador.
     
 - **¿Qué queremos lograr?** Determinar cuántas de estas religiones realmente nos ayudan a cultivar una buena relación con Dios.
