@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Apuntes/Asamblea Regional 2022/Domingo.md",
+                "file": "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Domingo"
+              "title": "Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová"
             }
           }
         ]
@@ -78,7 +78,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 386.5
+    "width": 341.5
   },
   "right": {
     "id": "a788a90b54e83c79",
@@ -166,7 +166,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 354.5
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -179,15 +179,26 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "a414bced316954f0",
+  "active": "8b228a97c5b75ee0",
   "lastOpenFiles": [
-    "Apuntes/Asamblea Regional 2022/Sabado.md",
+    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
+    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
+    "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
+    "Discursos/Nuestra Vida Cristiana",
+    "Perlas/Proverbios/Proverbios 15.md",
+    "Perlas/Proverbios/Proverbios 14.md",
+    "Perlas/Proverbios/Proverbios 13.md",
+    "Perlas/Proverbios/Prove.md",
+    "Perlas/Proverbios/Capítulo 8.md",
+    "Perlas/Proverbios/Capítulo 7.md",
+    "Perlas/Proverbios/Capítulo 6.md",
+    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
     "Apuntes/Asamblea Regional 2022/Domingo.md",
+    "Apuntes/Asamblea Regional 2022/Sabado.md",
     "Apuntes/Asamblea Regional 2022/Viernes.md",
     "Apuntes/Asamblea Regional 2021/Viernes.md",
     "Apuntes/Asamblea Regional 2021/Sabado.md",
     "Imagenes/Disc.50/num50-1.png",
-    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
     "Apuntes/Asamblea Regional 2022",
     "Apuntes/Asamblea Regional 2021/Domingo.md",
     "Discursos/Conversaciones",
@@ -198,13 +209,10 @@
     "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
     "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
     "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
-    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
-    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
     "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
     "Imagenes/Disc/erer.md",
     "Imagenes/Disc",
     "Imagenes/Sin título.md",
-    "conflict-files-obsidian-git.md",
     "Imagenes/Disc.50/num50-5.png",
     "Imagenes/Disc.50/num50-4.png",
     "Imagenes/Disc.50",
@@ -216,14 +224,6 @@
     "Apuntes/Escuelas Teocraticas",
     "Discursos/Seamos Mejores Maestros",
     "Discursos/Tesoros de la Biblia",
-    "Discursos/Publicos",
-    "Imagenes/Disc.50/num50-3.png",
-    "Puntos Sobresalientes/Joven.md",
-    "Puntos Sobresalientes/Botiquín Contra la Ansiedad.md",
-    "Perlas/Proverbios/Capítulo 5.md",
-    "Perlas/Proverbios/Capítulo 4.md",
-    "Perlas/Proverbios/Capítulo 2.md",
-    "Perlas/Proverbios/Capítulo 3.md",
-    "Perlas/Proverbios/Capítulo 1.md"
+    "Imagenes/Disc.50/num50-3.png"
   ]
 }
