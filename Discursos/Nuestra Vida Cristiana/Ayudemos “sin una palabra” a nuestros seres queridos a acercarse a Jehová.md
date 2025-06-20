@@ -8,7 +8,7 @@
     - Nuestros familiares
     - Y si estamos casados, nuestro cónyuge
 
-Pero, ¿qué pasa si alguna de esas personas **por ahora** no está sirviendo a Jehová?
+- Pero, ¿qué pasa si alguna de esas personas **por ahora** no está sirviendo a Jehová?
 
 - Tal vez se haya apartado de la congregación.
 - O quizá nunca ha tomado la decisión de servir a Jehová.
