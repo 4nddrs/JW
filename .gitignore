@@ -1,0 +1,11 @@
+# ⚠️ Ignora archivos que cambian constantemente y causan conflictos
+.obsidian/workspace.json
+.obsidian/appearance.json
+.obsidian/graph.json
+.obsidian/app.json
+
+# 🚫 Ignora temas, snippets y plugins descargados localmente
+.obsidian/snippets/
+.obsidian/themes/
+.obsidian/plugins/
+
