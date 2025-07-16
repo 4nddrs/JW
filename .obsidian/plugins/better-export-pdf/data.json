@@ -13,9 +13,9 @@
   "enabledCss": false,
   "concurrency": "5",
   "prevConfig": {
-    "pageSize": "A4",
+    "pageSize": "Legal",
     "marginType": "1",
-    "showTitle": true,
+    "showTitle": false,
     "open": true,
     "scale": 100,
     "landscape": false,
