@@ -5,4 +5,4 @@ Ahora bien, es interesante que se use la palabra “justa”. En la Biblia la ju
 
 El es misericordioso, dadivoso y compasivo.
 
-Si nosotros imitamos esas cualidades, al momento de ayudar a los demás ya sea con dinero, tiempo o energía. Seremos personas justas a los ojos de Jehová ya que estaremos reflejando su personalidad
+Si nosotros imitamos esas cualidades, al momento de ayudar a los demás ya sea con dinero, tiempo o energía. Seremos personas justas a los ojos de Jehová ya que estaremos reflejando su personalidad.

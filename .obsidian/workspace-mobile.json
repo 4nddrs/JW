@@ -4,39 +4,24 @@
     "type": "split",
     "children": [
       {
-        "id": "0c492fe849f92f42",
+        "id": "e03fc68ce727b2e3",
         "type": "tabs",
         "children": [
           {
-            "id": "00981ae3d72574bb",
+            "id": "b5709fc27584eb93",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
+                "file": "Perlas/Proverbios/Capítulo 22.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová"
-            }
-          },
-          {
-            "id": "b399ca06c8ee89bb",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "Perlas/Proverbios/Capítulo 21.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Capítulo 21"
+              "title": "Capítulo 22"
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -179,12 +164,24 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "b399ca06c8ee89bb",
+  "active": "b5709fc27584eb93",
   "lastOpenFiles": [
-    "Perlas/Proverbios/Capítulo 18.md",
     "Perlas/Proverbios/Capítulo 21.md",
-    "Perlas/Proverbios/Capítulo 19.md",
+    "Perlas/Proverbios/Capítulo 22.md",
+    "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
+    "/Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
+    "/Discursos/Seamos Mejores Maestros",
+    "/Discursos",
+    "/Apuntes/Asamblea Regional 2025/Sabado.md",
+    "Apuntes/Asamblea Regional 2025/Sabado.md",
+    "/Apuntes/Asamblea Regional 2025",
+    "/Apuntes",
     "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
+    "Apuntes/Asamblea Regional 2025/Viernes.md",
+    "/Apuntes/Asamblea Regional 2025/Viernes.md",
+    "Apuntes/Asamblea Regional 2025",
+    "Perlas/Proverbios/Capítulo 18.md",
+    "Perlas/Proverbios/Capítulo 19.md",
     "Untitled",
     "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
     "Perlas/Proverbios/Capítulo 9.md",
@@ -200,25 +197,13 @@
     "Apuntes/Asamblea Regional 2022/Domingo.md",
     "/Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
     "/Discursos/Nuestra Vida Cristiana",
-    "/Discursos",
     "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
     "Discursos/Nuestra Vida Cristiana",
     "Perlas/Proverbios/Capítulo 8.md",
-    "Apuntes/Asamblea Regional 2021/Sabado.md",
-    "Puntos Sobresalientes/Joven.md",
-    "Perlas/Proverbios/Capítulo 2.md",
-    "Perlas/Proverbios/Capítulo 10.md",
-    "Perlas/Proverbios/Capítulo 7.md",
-    "Perlas/Proverbios/Capítulo 6.md",
-    "Perlas/Proverbios/Capítulo 4.md",
     "Imagenes/Disc.50/num50-1.png",
     "/Imagenes/Disc.50/num50-1.png",
     "Discursos/Publicos",
     "Discursos/Conversaciones",
-    "Discursos/Tesoros de la Biblia",
-    "Apuntes/Asamblea Regional 2022",
-    "Apuntes/Asamblea Regional 2021",
-    "Apuntes/Escuelas Teocraticas",
     "Imagenes/Disc.50/num50-5.png",
     "Imagenes/Disc.50/num50-4.png",
     "Imagenes/Disc.50/num50-3.png",
