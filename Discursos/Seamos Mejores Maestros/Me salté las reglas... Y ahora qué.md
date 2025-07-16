@@ -1,6 +1,6 @@
 ## Introducción
 
-- Imagina que tienes una hoja de papel blanca. Esa hoja representa la confianza que tus padres tienen en ti.
+- Imagina que tienes una hoja de papel. Esa hoja representa la confianza que tus padres tienen en ti.
 
 - Si la arrugas, ya no queda igual. 
 - Pero aún puede usarse.
@@ -68,7 +68,6 @@ Heather lo expresó así:
 - Nadie disfruta ser castigado.  
 - Pero **aceptar las consecuencias sin quejas ni reclamos** demuestra que estás aprendiendo.
 
-
 > [! Proverbios 8:33 ]
 > “Escuchen la disciplina.”
 
@@ -80,6 +79,12 @@ Heather lo expresó así:
 - La confianza no vuelve sola con el tiempo.  
 - **Se reconstruye con hechos, no con palabras.**  
 - Tienes que demostrar, día tras día, que aprendiste la lección.
+
+- Recuperar la confianza no es simple inercia, es esfuerzo.  
+	- Comienza cuando eres honesto
+	- Se fortalece cuando pides perdón
+	- Crece cuando aceptas las consecuencias…  
+	- y se consolida cuando tus acciones hablan por ti.
 
 ## Conclusion
 - Ahora volvamos a la ilustración del inicio
