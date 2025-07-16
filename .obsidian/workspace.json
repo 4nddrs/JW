@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
+                "file": "Perlas/Proverbios/Capítulo 22.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Me salté las reglas... Y ahora qué"
+              "title": "Capítulo 22"
             }
           }
         ]
@@ -78,7 +78,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 341.5
+    "width": 341.5,
+    "collapsed": true
   },
   "right": {
     "id": "a788a90b54e83c79",
@@ -179,10 +180,11 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "74382510645d425c",
+  "active": "d2c2f3dc8e54b3b1",
   "lastOpenFiles": [
-    "Apuntes/Asamblea Regional 2025/Sabado.md",
     "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
+    "Perlas/Proverbios/Capítulo 22.md",
+    "Apuntes/Asamblea Regional 2025/Sabado.md",
     "Perlas/Proverbios/Capítulo 21.md",
     "Apuntes/Asamblea Regional 2025/Viernes.md",
     "Apuntes/Asamblea Regional 2022/Sabado.md",
@@ -210,7 +212,6 @@
     "Perlas/Proverbios/Proverbios 15.md",
     "Perlas/Proverbios/Proverbios 14.md",
     "Perlas/Proverbios/Proverbios 13.md",
-    "Perlas/Proverbios/Prove.md",
     "Imagenes/Disc.50/num50-1.png",
     "Apuntes/Asamblea Regional 2022",
     "Discursos/Conversaciones",
