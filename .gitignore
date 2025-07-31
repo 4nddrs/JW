@@ -3,7 +3,7 @@
 .obsidian/appearance.json
 .obsidian/graph.json
 .obsidian/app.json
-
+.obsidian/
 # 🚫 Ignora temas, snippets y plugins descargados localmente
 .obsidian/snippets/
 .obsidian/themes/
