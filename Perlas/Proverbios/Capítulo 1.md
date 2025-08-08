@@ -18,4 +18,4 @@ Esto nos enseña que si nuestros padres nos dan consejos basados en la Biblia, J
 Jehová quiere que nos mantengamos LEJOS del camino de nuestros enemigos, esto me hace pensar que Jehová no quiere que ni estemos cerca de ellos porque si estamos cerca sería más fácil que cayéramos. Por eso Jehová quiere que guardemos distancia.
 
 ##### **Versículo 31:** cargarán con las consecuencias de su conducta, se hartarán de todos sus planes malvados
-Hay consecuencias por las decisiones que tomemos, y cargaremos con las consecuencias de nuestra conducta
+Hay consecuencias por las decisiones que tomemos, y cargaremos con las consecuencias de nuestra [[Capítulo 24 | conducta]] 
