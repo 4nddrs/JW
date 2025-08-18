@@ -4,21 +4,21 @@
     "type": "split",
     "children": [
       {
-        "id": "d95f5d7eb32ac18d",
+        "id": "a0626bdc48b97d66",
         "type": "tabs",
         "children": [
           {
-            "id": "74382510645d425c",
+            "id": "7c57bbea75ef6be3",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Perlas/Proverbios/Capítulo 23.md",
+                "file": "Discursos/Tesoros de la Biblia/Cómo nos beneficia tener amigos verdaderos.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Capítulo 23"
+              "title": "Cómo nos beneficia tener amigos verdaderos"
             }
           }
         ]
@@ -179,10 +179,22 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "74382510645d425c",
+  "active": "7c57bbea75ef6be3",
   "lastOpenFiles": [
-    "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
+    "Discursos/Tesoros de la Biblia/Cómo nos beneficia tener amigos verdaderos.md",
+    "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
+    "Puntos Sobresalientes/Atalaya/Podemos alabar a Jehová todo el día..md",
     "Perlas/Proverbios/Capítulo 23.md",
+    "Puntos Sobresalientes/Textos Bíblicos/Joven.md",
+    "Puntos Sobresalientes/Textos Bíblicos/Botiquín Contra la Ansiedad.md",
+    "Puntos Sobresalientes/Textos Bíblicos",
+    "Puntos Sobresalientes/Atalaya",
+    "Perlas/Proverbios/Capítulo 26.md",
+    "Puntos Sobresalientes/Ejemplos Bíblicos/Noé.md",
+    "Puntos Sobresalientes/Ejemplos Bíblicos",
+    "Perlas/Proverbios/Capítulo 25.md",
+    "Perlas/Proverbios/Capítulo 24.md",
+    "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
     "Perlas/Proverbios/Sin nombre",
     "Perlas/Proverbios/Capítulo 22.md",
     "Apuntes/Asamblea Regional 2025/Sabado.md",
@@ -196,30 +208,18 @@
     "Puntos Sobresalientes/Botiquín Contra la Ansiedad.md",
     "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
     "Perlas/Proverbios/Capítulo 19.md",
-    "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
     "Perlas/Proverbios/Capítulo 9.md",
     "Perlas/Proverbios/Capítulo 18.md",
     "Perlas/Proverbios/Capítulo 17.md",
     "Perlas/Proverbios/Capítulo 16.md",
-    "Perlas/Proverbios/Capítulo 15.md",
-    "Perlas/Proverbios/Capítulo 14.md",
-    "Perlas/Proverbios/Capítulo 13.md",
-    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
-    "Sin título.md",
     "Sin nombre 1",
     "Sin nombre",
-    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
     "Discursos/Nuestra Vida Cristiana",
-    "Perlas/Proverbios/Proverbios 15.md",
-    "Perlas/Proverbios/Proverbios 14.md",
     "Imagenes/Disc.50/num50-1.png",
     "Apuntes/Asamblea Regional 2022",
     "Discursos/Conversaciones",
-    "Apuntes/Asamblea Regional 2021",
-    "Imagenes/Disc",
     "Imagenes/Disc.50/num50-5.png",
     "Imagenes/Disc.50/num50-4.png",
-    "Imagenes/Disc.50",
     "Imagenes/Disc.50/num50-3.1.png",
     "Imagenes/Disc.50/Num50-2.1.png",
     "Imagenes/Disc.50/num50-2.png",
