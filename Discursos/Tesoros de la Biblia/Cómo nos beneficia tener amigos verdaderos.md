@@ -80,7 +80,7 @@
 - Esos son amigos verdaderos, e ahi su importancia.
 - Por eso son un tesoro que debemos cuidar.
 
-## Conclusión
+## Conclusión (1.5 - 2 min)
 
 - En este discurso, gracias a Jehova hemos aprendido muchas cosas.
 - Hagamos un repaso: 
