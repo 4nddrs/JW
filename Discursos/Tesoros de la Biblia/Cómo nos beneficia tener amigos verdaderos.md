@@ -61,7 +61,7 @@
 - Los amigos verdaderos reflejan nuestras virtudes y nos ayudan a potenciarlas.
 	
 - Y en Biblia encontramos un ejemplo, recuerda a Jehoás y Jehoiadá?
-- Aunque eran de diferentes edades, la amistad y guía de Jehoiadá ayudó a Jehoás a seguir el camino correcto al inicio de su reinado. 
+- Aunque eran de diferentes edades, la amistad y guía de Jehoiadá, ayudó a Jehoás a seguir el camino correcto al inicio de su reinado. 
 
 - Pero cuando Jehoás dejó de escuchar esa influencia positiva y se rodeó de malas amistades, tomó decisiones equivocadas.
     
