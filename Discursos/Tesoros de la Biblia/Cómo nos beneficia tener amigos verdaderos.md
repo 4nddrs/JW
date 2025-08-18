@@ -50,7 +50,7 @@
 
 - Tal como vemos en esta imagen 🖼️, nuestro hermano mayor necesita ayuda para ir al doctor y tener la consulta medica.
 
-- Y un amigo buen amigo esta ahi, cuando lo necesita. 
+- Y un amigo buen amigo esta ahi ayudándolo, cuando mas lo necesita. 
 
 ---
 
