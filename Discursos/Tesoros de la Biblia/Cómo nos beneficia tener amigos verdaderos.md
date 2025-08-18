@@ -46,7 +46,11 @@
 
 - Igual que el espejo de la casa está siempre ahí cuando lo necesitamos, un amigo verdadero está presente en nuestras pruebas y dificultades.
 
-- Por esa razon, debemos valorar y cultivar esas amistades fieles que Jehová nos da en la congregación, porque muchas veces son un apoyo más inmediato que la  familia de sangre.”
+- Por esa razon, debemos valorar y cultivar esas amistades fieles que Jehová nos da en la congregación, porque muchas veces nuestra familia espiritual nos dará un apoyo mas inmediato que la familia de sangre.”
+
+- Tal como vemos en esta imagen 🖼️, nuestro hermano mayor necesita ayuda para ir al doctor y tener la consulta medica.
+
+- Y un amigo buen amigo esta ahi, cuando lo necesita. 
 
 ---
 
