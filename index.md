@@ -2,7 +2,7 @@
 title: Welcome to JW-Notes
 ---
 
-# 📖 Mis Notas Personaless
+# 📖 Mis Notas Personales
 
 ¡Bienvenido!  
 Este es un espacio donde recopilo y organizo mis notas e información importante. 
