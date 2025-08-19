@@ -94,7 +94,7 @@
 - Podemos preocuparnos personalmente por cada integrante
     
 - Si cumplimos con nuestras responsabilidades familiares alabaremos a Jehová
-    
+
 
 ## Esfuércense por una labor muy buena
 
