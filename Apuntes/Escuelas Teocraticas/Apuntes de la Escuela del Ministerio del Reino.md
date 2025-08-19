@@ -1,7 +1,7 @@
 # Pongámonos al frente del ministerio con valor
 
 - Somos maestros de las buenas noticias
-- Pase lo que pase queremos seguir participando en el ministerio
+- Pase lo que pase queremos seguir siendolo
 - 1 Tesalonicenses 2:2
 - Como podemos estar al frente? Compartir el entusiasmo?
 

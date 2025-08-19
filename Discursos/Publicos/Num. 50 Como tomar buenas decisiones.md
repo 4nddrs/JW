@@ -109,7 +109,7 @@ porque obedezco tus órdenes.
 - Vamos a analizar juntos esta serie de pasos:
 
 1. **NO SE APRESURE**
-<div style="text-align: center;"> <img src="num50-2.1.png" width="300"> </div>
+<div style="text-align: center;"> <img src="num50-2.png" width="300"> </div>
 - Al igual que un artista se toma su tiempo para pensar en lo que quiere pintar.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Y Jehová nos dio esta instrucción en:

@@ -36,7 +36,7 @@
 >
 >De hecho, nos sentimos como si ya estuviéramos condenados a muerte. Esto sucedió para que no confiáramos en nosotros mismos, sino en el Dios que levanta a los muertos. 
 >
-Él nos libró de tan terrible peligro de muerte, y nos librará de nuevo. Y ponemos nuestra esperanza en él, en que seguirá librándonos.
+>Él nos libró de tan terrible peligro de muerte, y nos librará de nuevo. Y ponemos nuestra esperanza en él, en que seguirá librándonos.
 
 >[!versiculo] Colosenses 3:23
 >Cualquier cosa que ustedes hagan, háganla con toda el alma como si fuera para Jehová y no para los hombres
@@ -133,9 +133,9 @@
 >[!versiculo] Salmo 39:6 (b)
 >”…” Corre de acá para allá en vano. Amontona riquezas sin saber quién las va a disfrutar
 
-```python
-Este versículo me ayuda a ver las cosas materiales desde el punto de vista adecuado, no tendría sentido sacrificar el valioso tiempo que le dedicamos a Jehová para conseguir más cosas en sentido material.
-```
+
+- Este versículo me ayuda a ver las cosas materiales desde el punto de vista adecuado, no tendría sentido sacrificar el valioso tiempo que le dedicamos a Jehová para conseguir más cosas en sentido material.
+
 >[!versiculo] Efesios 5:10
 > Sigan asegurándose de lo que le agrada al Señor
 

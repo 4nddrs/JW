@@ -4,5 +4,5 @@ Ese punto nos recuerda que nuestras palabras pueden ser como agua que apaga un i
 Cuando surge un conflicto, si repetimos rumores o comentarios negativos, lo mantenemos vivo y hasta lo empeoramos.  
 En cambio, al callar lo dañino y hablar con calma, ayudamos a que la tensión se disipe y la paz regrese.  
   
->[! Important]
+>[!Important]
 >¿Mis palabras apagan o avivan conflictos?

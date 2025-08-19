@@ -13,7 +13,7 @@
 - Nosotros no somos jueces sino mensajeros, Jehová es el único juez.
 - Los ninivitas cambiaron su forma de pensar y actuar
 
->[! Important]
+>[!Important]
 > Demostremos compasión al igual que Jehová. Pasemos del sentimiento a la acción. Lo hacemos predicando sin juzgar.
 
 - Jehová puede hacer cambiar a las personas.
@@ -199,7 +199,7 @@
     
 - **Resultado:** Jehová utilizo a Nehemias.
 
->[! Important]
+>[!Important]
 >Necesitamos fe para trabajar en la construcción.
 
 - Jehová nos ayudará a aprender las habilidades necesarias.

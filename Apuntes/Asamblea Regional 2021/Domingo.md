@@ -99,7 +99,7 @@
 - Las buenas noticias han mejorado nuestra vida.
 - En este mundo lleno de maldad estamos agradecidos por estas buenas noticias.
 
->[! Important]
+>[!Important]
 >"Jehová recompensara a los que lo buscan con Fe".
 
 # TARDE
