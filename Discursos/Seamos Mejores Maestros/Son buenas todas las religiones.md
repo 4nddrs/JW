@@ -25,7 +25,7 @@
 
 Jehová les dio una clara instrucción sobre la adoración que él esperaba recibir:
 
->[!Éxodo 20:3]
+>[!versiculo] Éxodo 20:3
 >“No tengas otros dioses aparte de mí.”
 
 - Jehová es un Dios que exige adoración exclusiva.
@@ -37,7 +37,7 @@ Jehová les dio una clara instrucción sobre la adoración que él esperaba reci
 ## ¿Qué opina Jehová de las religiones que promueven adorar a otros dioses o a más de uno?
 
 
-> [!2 Corintios 6:17]
+> [!versiculo] 2 Corintios 6:17
 > “Por eso sálganse de entre ellos y sepárense —dice Jehová— y dejen de tocar la cosa impura, y yo los recibiré.”
 
 - Jehová promete recibirnos, él quiere tener una buena relación con nosotros.
@@ -63,7 +63,7 @@ Entonces…
 
 ## Jesús nos transmitió lo que opina Jehová
 
-> [!Marcos 7: 7, 8]
+> [!versiculo] Marcos 7: 7, 8
 > “De nada sirve que me estén adorando, porque enseñan doctrinas que son mandatos de hombres.  
 > Ustedes dejan de lado los mandamientos de Dios y se aferran a las tradiciones de los hombres.”
 
@@ -107,7 +107,7 @@ Podemos llegar a una conclusión muy clara:
 
 - Leamos un último texto: 
 
-> [! Santiago 1: 26, 27]
+> [!versiculo] Santiago 1: 26, 27
 > “Si alguien piensa que adora a Dios, pero no mantiene bajo control su lengua, está engañando a su propio corazón, y su adoración no sirve de nada.  
 > 
 > Desde el punto de vista de nuestro Dios y Padre, la forma de adoración pura y sin contaminar es esta: cuidar de los huérfanos y de las viudas en sus dificultades y mantenerse sin mancha del mundo.”

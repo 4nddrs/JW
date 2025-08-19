@@ -20,7 +20,7 @@
 - Cómo podemos hacerlo en las reuniones de servicio del campo?
 - Preparándonos de antemano la información que vamos a analizar
 - Debemos **rogar a Jehová** por ayuda para lograr el objetivo
->[! Aplicación ]
+>[! Aplicacion]
 >Debemos rogar a Jehová por ayuda para lograrlo
 - Imitemos a Jesús
 	1. Confié en Jehová

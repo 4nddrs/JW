@@ -29,7 +29,7 @@
 - Leámoslo en la Biblia. David expresó sus sentimientos en el Salmo 138:1:
     
 
-> [!Salmo 138:1]  
+> [!versiculo] Salmo 138:1
 > Te alabaré con todo mi corazón.
 
 - ¡Exacto! Hablamos del deseo de alabar a Jehová.
@@ -70,7 +70,7 @@
     
 - ¿Y qué pasó?
 
-> [!Salmo 138:3]  
+> [!versiculo] Salmo 138:3
 > El día en que llamé, tú me respondiste, me hiciste una persona valiente y fuerte.
 
 - ¿Lo notaron? Jehová fortaleció a David… y también lo fortalecerá a usted.
@@ -131,7 +131,7 @@
     
 - ¿Y qué opina Jehová de las personas humildes?
 
-> [!Salmo 138:6]  
+> [!versiculo] Salmo 138:6
 > Aunque Jehová es elevado, se fija en el humilde.
 
 - A Jehová le encanta la humildad.
@@ -154,7 +154,7 @@
     
 - En el siglo I, los cristianos en Tesalónica enfrentaban pruebas difíciles… igual que nosotros hoy.
 
-> [!1 Tesalonicenses 5:11]  
+> [!versiculo] 1 Tesalonicenses 5:11
 > Sigan animándose unos a otros y edificándose unos a otros.
 
 - Hermanos y hermanas, nunca subestimen el poder de su comentario.

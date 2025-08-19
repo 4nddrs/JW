@@ -36,7 +36,7 @@
 	- Estos 4 pasos están basados en la Biblia, así que vienen de parte de Jehova.
 ##### ✔️ **Primero: Admítelo**
 
->[! Proverbios 28:13]
+>[!versiculo] Proverbios 28:13
 >“Al que esconde sus pecados no le irá bien.”
 
 - Tus padres no esperan que seas perfecto.  
@@ -51,7 +51,7 @@ Como dijo Olivia:
 #### ✔️ **Segundo: Pide perdón**
 
 
->[! 1 Pedro 5:5 ]
+>[!versiculo] 1 Pedro 5:5 
 “Vístanse todos de humildad.”
 
 - Pedir perdón de verdad no es decir “lo siento” por compromiso.
@@ -68,7 +68,7 @@ Heather lo expresó así:
 - Nadie disfruta ser castigado.  
 - Pero **aceptar las consecuencias sin quejas ni reclamos** demuestra que estás aprendiendo.
 
-> [! Proverbios 8:33 ]
+> [!versiculo] Proverbios 8:33 
 > “Escuchen la disciplina.”
 
 

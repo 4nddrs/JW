@@ -38,7 +38,7 @@
 - La Biblia es la palabra de Jehova, contiene consejos sabios y prácticos
 - Pero como podemos nosotros beneficiarnos de lo que leemos en la Biblia, en el Salmo 119: 97 encontramos la respuesta:
 
->[!Salmo 119:97]
+>[!versiculo] Salmo 119:97
 >¡Cuánto amo tu ley! Reflexiono en ella todo el día
 
 - Podemos sacar algunas lecciones: 
@@ -47,7 +47,7 @@
 
 - Y cual sera el resultado? Leamos...
 
->[!Salmo 119:100]
+>[!versiculo] Salmo 119:100
 >Me comporto con más entendimiento que los hombres de edad
 porque obedezco tus órdenes.
 
@@ -78,7 +78,7 @@ porque obedezco tus órdenes.
 - Y está es la clave para usar bien la 2da herramienta qué Jehová nos dio
 - Para descubrir a que nos referimos, vamos a leer:
 
->[!Proverbios 2:10, 11]
+>[!versiculo] Proverbios 2:10, 11
 >Cuando la sabiduría entre en tu corazón y el conocimiento se convierta en algo agradable para tu alma
 >
 >La capacidad de pensar velará por ti y el discernimiento te protegerá
@@ -91,7 +91,7 @@ porque obedezco tus órdenes.
 - Sera justo al momento de tomar la decision? 
 - Jehova nos da la respuesta...
 
->[!Hebreos 5:14]
+>[!versiculo] Hebreos 5:14
 > "..." El alimento sólido es para personas maduras,para las que **con la práctica** han entrenado su capacidad de discernimiento para distinguir lo que está bien de lo que está mal.
 
 - Notaron? Aquí leemos: Que **CON LA PRACTICA** llegaremos a entrenar nuestra conciencia
@@ -114,7 +114,7 @@ porque obedezco tus órdenes.
 - Nosotros debemos tomarnos el tiempo necesario para pensar que vamos a hacer
 - Y Jehová nos dio esta instrucción en:
 
->[!Deuteronomio 32:29]
+>[!versiculo] Deuteronomio 32:29
 > ¡Ojalá fueran sabios! Reflexionarían sobre todo esto. Pensarían en cómo acabarán.
 
 
@@ -135,7 +135,7 @@ porque obedezco tus órdenes.
 	- Y reconocerlo no tiene que avergonzarnos
 	- Leamos la invitation que nos hace Jehova:
 
->[! Santiago 1:5]
+>[!versiculo] Santiago 1:5
 >Así que, si a alguno de ustedes le falta sabiduría, que se la pida constantemente a Dios, y la recibirá, porque él da generosamente a todos y sin reproches
 
 - Podemos extraer dos lecciones de este versículo
@@ -157,7 +157,7 @@ porque obedezco tus órdenes.
 - El Rey Salomon sabia muy bien esto
 - Es más, el hizo una comparación muy interesante en:
 
->[! Proverbios 2: 4, 5]
+>[!versiculo] Proverbios 2: 4, 5
 Si sigues buscando esto como si fuera plata
 y vas siempre en su búsqueda como si fueran tesoros escondidos.
 Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
@@ -191,7 +191,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Esto dando a entender que nos guiemos por nuestras emociones de ese momento
 - Pero que opina de Jehova de esto: 
 
->[! Proverbios 28:26]
+>[!versiculo] Proverbios 28:26
 >El que confía en su propio corazón es un insensato, pero el que actúa con sabiduría escapará.
 
 - Jehova no quiere que tomemos una decision basándonos solo en nuestras emociones
@@ -218,7 +218,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Que debemos hacer en ese caso?
 - Encontramos la respuesta en:
 
->[! Gálatas 6:9]
+>[!versiculo] Gálatas 6:9
 >Así que no dejemos de hacer lo que está bien, porque al debido tiempo cosecharemos si no nos cansamos.
 
 - Es interesante que aca se habla de una cosecha
@@ -266,7 +266,7 @@ Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 - Pero no para los ojos de este mundo, sino una que nos haga felices y de gloria a Jehova
 - La técnica perfecta para lograrlo la encontramos en:
  
->[! Proverbios 3: 5, 6]
+>[!versiculo] Proverbios 3: 5, 6
 > Confía en Jehová con todo tu corazón y no te apoyes en tu propio entendimiento. Tómalo en cuenta en todos tus caminos, y él hará rectas tus sendas.
 
 - No sabemos lo que nos espera en el futuro

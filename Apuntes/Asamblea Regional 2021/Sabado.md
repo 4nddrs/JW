@@ -13,7 +13,7 @@
 - Nosotros no somos jueces sino mensajeros, Jehová es el único juez.
 - Los ninivitas cambiaron su forma de pensar y actuar
 
->[! important]
+>[! Important]
 > Demostremos compasión al igual que Jehová. Pasemos del sentimiento a la acción. Lo hacemos predicando sin juzgar.
 
 - Jehová puede hacer cambiar a las personas.

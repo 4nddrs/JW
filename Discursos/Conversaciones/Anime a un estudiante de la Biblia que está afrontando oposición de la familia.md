@@ -44,12 +44,12 @@ Veamos lo que le dijo en **1 Crónicas 28:20**.
 ## 📚 Lectura del texto (01:30–02:00)
 
 🔵 **Andrés (lee con tono firme):**  
-> [! 1 Crónicas 28:20]
+> [!versiculo] 1 Crónicas 28:20
 > “Sé fuerte y valiente, y ponte a trabajar. No tengas miedo ni te aterrorices, porque Jehová Dios, mi Dios, está contigo.”
 
 ---
 
-## 💡 Aplicación y enseñanza (02:00–04:00)
+## 💡 Aplicacion y enseñanza (02:00–04:00)
 
 🔵 **Andrés:**  
 ¡Qué palabras tan poderosas! David sabía que la tarea de Salomón sería difícil, y por eso lo animó a ser fuerte.  

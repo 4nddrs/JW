@@ -15,7 +15,7 @@
 - Génesis 39:21, 23(parte B)
 - Jehová seguía con José pese a todo
 
-> [! Lección ]
+> [!Lección ]
 No tengamos dudas de que Jehová siempre nos estará acompañando en todo momento
 #### José se puso a trabajar
 - Génesis 39:6, 23
@@ -25,7 +25,7 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 - Pensemos en **LO QUE PODEMOS HACER**
 - Sino lo hacemos, podríamos llegar a olvidarlo
 
->[! Lección]
+>[! Leccion]
 >Seamos valientes y demos lo mejor a Jehová en cada circunstancia 
 #### José se volvió un experto en todo lo que hacía
 - Como José se volvió experto en todo lo que hacía?
@@ -38,7 +38,7 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 	2. Puntuales
 	3. Entusiastas
 
->[! Lección]
+>[! Leccion]
 > En cada situación siempre demos lo mejor de nosotros con la ayuda de Jehová 
 
 #### José cultivo y demostró cualidades
@@ -98,9 +98,6 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 >[! Important] 
 >Los leales siempre se vuelven a ver 
 
-
-
-=======
 - José no tuvo una vida sencilla
 - La vida puede darnos amargas sorpresas
 - Puede que tengamos cosas que nos quiten la paz
@@ -117,7 +114,7 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 - Génesis 39:21, 23(parte B)
 - Jehová seguía con José pese a todo
 
-> [! Lección ]
+> [! Leccion]
 -No tengamos dudas de que Jehová siempre nos estará acompañando en todo momento
 #### José se puso a trabajar
 - Génesis 39:6, 23
@@ -127,7 +124,7 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 - Pensemos en **LO QUE PODEMOS HACER**
 - Sino lo hacemos, podríamos llegar a olvidarlo
 
->[! Lección]
+>[! Leccion]
 >Seamos valientes y demos lo mejor a Jehová en cada circunstancia 
 #### José se volvió un experto en todo lo que hacía
 - Como José se volvió experto en todo lo que hacía?
@@ -140,7 +137,7 @@ No tengamos dudas de que Jehová siempre nos estará acompañando en todo moment
 	2. Puntuales
 	3. Entusiastas
 
->[! Lección]
+>[! Leccion]
 > En cada situación siempre demos lo mejor de nosotros con la ayuda de Jehová 
 
 #### José cultivo y demostró cualidades

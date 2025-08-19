@@ -21,9 +21,10 @@
 
 - Para este punto tenemos el texto de Proverbios 27:5, 6, vamos a leerlo juntos
 
->[! Proverbios 27: 5, 6]
->Es mejor la corrección **expresada** que el amor oculto. 
+>[!versiculo] Proverbios 27:5, 6
+>Es mejor la corrección **expresada** que el amor oculto.  
 >Las heridas causadas por un amigo son fieles, pero los besos del enemigo son muchos.
+
 
 - Igual que un espejo nos muestra la suciedad en la cara, un amigo verdadero se atreve a mostrarnos con **amor** lo que debemos corregir.
 
@@ -39,7 +40,7 @@
 
 - Leamos Proverbios 27:10:
 
->[! Proverbios 27:10]
+>[!versiculo] Proverbios 27:10
 >No abandones a tu amigo ni al amigo de tu padre y no vayas a la casa de tu hermano el día de tu desastre; más vale amigo cerca que hermano lejos
 
 - Este versículo enseña que un amigo íntimo y leal puede ayudarnos incluso más que un familiar. ¿Por qué? Porque está cerca, disponible y dispuesto a apoyarnos.
@@ -58,7 +59,7 @@
 
 - Jehova, sabe la importancia de este punto, por eso tenemos en la Biblia el siguiente versículo...
 
->[! Proverbios 27:17]
+>[!versiculo] Proverbios 27:17
 >Así como el hierro afila el hierro, un hombre hace mejor a su amigo.
 
 - Recuerde, el espejo no solo nos muestra lo malo, sino también lo bueno

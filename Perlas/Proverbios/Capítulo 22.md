@@ -22,7 +22,7 @@ El capítulo 22 tiene dos partes:
 	- **"Las palabras de los sabios"**
 - Si ponemos atención el versículo 17 y 18  es una Introducción a esta nueva sección:
 
->[! Proverbios 22: 17 y 18]
+>[!versiculo] Proverbios 22: 17 y 18
 >Presta atención y escucha las palabras de los sabios para que te concentres en mi conocimiento, porque da gusto que las guardes muy dentro de ti para que todas ellas estén siempre en tus labios.
 
 - Este segmento cambia de estilo: 
@@ -33,14 +33,14 @@ El capítulo 22 tiene dos partes:
 - Inicia una nueva colección conocida como **"Más palabras de sabios"**
 - El versículo 23 es una pequeña introducción a esta sección.
 
->[! Proverbios 24:23]
+>[!versiculo Proverbios 24:23
 >Estas palabras también son de los sabios:
 
 
 ###### Proverbios 25-29: "Proverbios recopilados por los hombres de Ezequías"
 - El verso 1 de Proverbios 25 nos hace notar el inicio de una nueva sección titulada: **Proverbios recopilados por los hombres de Ezequías**
 
->[! Proverbios 25:1]
+>[!versiculo] Proverbios 25:1
 >Estos también son proverbios de Salomón, que transcribieron los hombres del rey Ezequías de Judá.
 
 ##### Pregunta: 
