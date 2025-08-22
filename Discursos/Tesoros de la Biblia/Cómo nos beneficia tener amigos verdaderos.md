@@ -17,7 +17,7 @@
 
 ## Cuerpo del discurso (6 – 7 min)
 
-#### 1. Los amigos verdaderos nos dan consejos sinceros
+#### 1. Los amigos verdaderos nos dan consejos sinceros'
 
 - Para este punto tenemos el texto de Proverbios 27:5, 6, vamos a leerlo juntos
 
@@ -68,7 +68,7 @@
 - Y en Biblia encontramos un ejemplo, recuerda a Jehoás y Jehoiadá?
 - Aunque eran de diferentes edades, la amistad y guía de Jehoiadá, ayudó a Jehoás a seguir el camino correcto al inicio de su reinado. 
 
-- Pero cuando Jehoás dejó de escuchar esa influencia positiva y se rodeó de malas amistades, tomó decisiones equivocadas.
+- Pero cuando Jehoás dejó de tener esa influencia positiva y se rodeó de malas amistades, tomó decisiones equivocadas.
     
 - Podemos aprender mucho de este relato, preguntémonos: 
 	- ¿Qué clase de amigos buscamos? 
@@ -78,7 +78,9 @@
 	- estudiar la Biblia
 	- a comentar en las reuniones 
 	- y a seguir las normas de Jehová
-- Esos son amigos verdaderos, e ahi su importancia.
+- Pues felicidades, usted ha encontrado amigos verdaderos
+- Un amigo verdadero no solo acepta que sirvamos a Jehová 
+- Sino que nos anima a hacerlo cada vez mejor, e ahi su importancia.
 - Por eso son un tesoro que debemos cuidar.
 
 ## Conclusión (1.5 - 2 min)
