@@ -80,6 +80,7 @@ porque obedezco tus órdenes.
 
 >[!versiculo] Proverbios 2:10, 11
 >Cuando la sabiduría entre en tu corazón y el conocimiento se convierta en algo agradable para tu alma
+>
 >La capacidad de pensar velará por ti y el discernimiento te protegerá
 
 - Jehova quiere que utilicemos todo el conocimiento que tenemos a la mano para educar a la segunda herramienta 
@@ -157,9 +158,9 @@ porque obedezco tus órdenes.
 - Es más, el hizo una comparación muy interesante en:
 
 >[!versiculo] Proverbios 2: 4, 5
-Si sigues buscando esto como si fuera plata
-y vas siempre en su búsqueda como si fueran tesoros escondidos.
-Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
+>Si sigues buscando esto como si fuera plata
+>y vas siempre en su búsqueda como si fueran tesoros escondidos.
+>Entonces entenderás el temor de Jehová y encontrarás el conocimiento de Dios.
 
 - Es interesante que Salomon compara el conocimiento a tesoros escondidos
 - Esto nos enseña que para poder encontrarlos muchas veces tendremos que dedicar tiempo y esfuerzo, en otras palabras tendremos que **investigar a fondo**
