@@ -80,7 +80,6 @@ porque obedezco tus órdenes.
 
 >[!versiculo] Proverbios 2:10, 11
 >Cuando la sabiduría entre en tu corazón y el conocimiento se convierta en algo agradable para tu alma
->
 >La capacidad de pensar velará por ti y el discernimiento te protegerá
 
 - Jehova quiere que utilicemos todo el conocimiento que tenemos a la mano para educar a la segunda herramienta 
