@@ -6,7 +6,7 @@ title: Welcome to JW-Notes
 
 ¡Bienvenido!  
 Este es un espacio donde recopilo y organizo mis notas e información importante. 
-Aquí puedes navegar de forma sencilla entre diferentes temas, estudios y referencias.
+Aquí puedes navegar de forma sencilla entre diferentes temas, estudios y referencias...
 
 ---
 
