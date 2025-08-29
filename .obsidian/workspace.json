@@ -78,7 +78,8 @@
       }
     ],
     "direction": "horizontal",
-    "width": 341.5
+    "width": 341.5,
+    "collapsed": true
   },
   "right": {
     "id": "a788a90b54e83c79",
@@ -180,8 +181,10 @@
       "command-palette:Abrir paleta de comandos": false
     }
   },
-  "active": "7c57bbea75ef6be3",
+  "active": "d2c2f3dc8e54b3b1",
   "lastOpenFiles": [
+    "Puntos Sobresalientes/Ejemplos Bíblicos/Abrahán le puso por nombre Isaac.md",
+    "Puntos Sobresalientes/Atalaya/Que nos enseñan las últimas palabras de Jacob (parte 1).md",
     "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
     "index.md",
     "Discursos/Tesoros de la Biblia/Cómo nos beneficia tener amigos verdaderos.md",
@@ -210,8 +213,6 @@
     "Perlas/Proverbios/Capítulo 24.md",
     "Perlas/Proverbios/Sin nombre",
     "Perlas/Proverbios/Capítulo 22.md",
-    "Apuntes/Asamblea Regional 2025/Sabado.md",
-    "Perlas/Proverbios/Capítulo 21.md",
     "Apuntes/Asamblea Regional 2025",
     "Sin nombre 1",
     "Sin nombre",
