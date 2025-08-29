@@ -30,7 +30,7 @@
 - Tenemos que predicar sin importar el lugar, el momento y la persona
 - Debemos mantener el equilibrio entre las actividades espirituales como las seglares
 - Tener más responsabilidades no significa que debemos descuidar lo más importante.
-- Ver a los estudiantes progresar nos da alegría y nos motiva a seguir esforzarnos
+- Ver a los [[Anime a un estudiante de la Biblia que está afrontando oposición de la familia|estudiantes]] progresar nos da alegría y nos motiva a seguir esforzarnos
 - Vale la pena esforzarnos por conseguir estudios bíblicos, por eso no nos rindamos
 ---
 - Jesus nos dio un encargo muy especial

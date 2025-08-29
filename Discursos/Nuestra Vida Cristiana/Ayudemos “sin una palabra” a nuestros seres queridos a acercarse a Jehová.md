@@ -58,12 +58,12 @@ _Cuando uno de los cónyuges **AUN** no sirve a Jehová._
 - Este video muestra a 3 hermanas que siguieron el consejo de Jehová.
 - ¿Qué resultados obtuvieron? Veámoslo juntos.
 
-## Conclusion
+## Conclusión 
 
 - Queridos hermanos y hermanas:
 - Hoy aprendimos que **nunca debemos dar por perdidos** a nuestros seres queridos que **por ahora** no sirven a Jehová.
 - Podemos ayudarlos con:
-    - amor
+    - [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante | amor]]
     - paciencia
     - y buen ejemplo.
 - Ustedes ya lo están haciendo muy bien. ¡Sigan así!

@@ -353,7 +353,7 @@
 - Volver no es fácil, pero él no espera que lo hagas solo.
 
 1. Mostrar amor
-2. Ser sus amigos
+2. Ser sus [[Cómo nos beneficia tener amigos verdaderos |amigos]]
 3. Recordar que esa persona ama a Jehová
 
 - Lamentaciones 5:21

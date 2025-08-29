@@ -64,7 +64,7 @@
 
 - Para obtener vida eterna las personas deben tener su propia relación con Jehová.
 - Debemos aclarar todas sus dudas.
-- Ayudemos a los estudiantes a desarrollar una Fe fuerte en Jehová.
+- Ayudemos a los [[Anime a un estudiante de la Biblia que está afrontando oposición de la familia |estudiantes]] a desarrollar una Fe fuerte en Jehová.
 - Debemos ayudar a los estudiantes a desarrollar una Fe fuerte en Jesus.
 - Con el corazón se demuestra la Fe.
 - La hermana no hablo demasiado.

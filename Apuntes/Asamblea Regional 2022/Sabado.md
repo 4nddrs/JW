@@ -82,7 +82,7 @@
 - La falta de honradez destruye amistades
 - Una sola mentira puede destruir nuestra reputación
 - Nuestros hermanos merecen que les digamos la verdad
-- Ser honrados nos ayudará a encontrar buenos amigos
+- Ser honrados nos ayudará a encontrar buenos [[Cómo nos beneficia tener amigos verdaderos |amigos]]
 
 ### El chisme
 

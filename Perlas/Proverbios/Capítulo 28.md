@@ -4,9 +4,9 @@ Este proverbio resalta 2 puntos muy importantes.
   
 Primero, la importancia de tener entendimiento, que implica:
 
-	- comprender 
-	- analizar 
-	- y aplicar
+- comprender 
+- analizar 
+- y aplicar
 
 correctamente lo que aprendemos, en este caso las leyes de Jehová.  
   
