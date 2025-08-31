@@ -10,7 +10,7 @@ Aquí puedes navegar de forma sencilla entre diferentes temas, estudios y refere
 
 ---
 
-## 🌟 ¿Qué es Quartz??
+## 🌟 ¿Qué es Quartz?
 Quartz es una herramienta que transforma tus archivos Markdown en un **sitio web estático** elegante y navegable.  
 Algunas de sus características son:
 
