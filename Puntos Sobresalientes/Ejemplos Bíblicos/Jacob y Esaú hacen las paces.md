@@ -1,5 +1,4 @@
 [Aprendo de la Biblia | Lección 13](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102016023)
-
 ###### Si Esau ya tenía la intención de perdonar a Jacob, ¿Por qué fue con 400 hombres a su encuentro?
 
 Esaú fue con un grupo tan numeroso quizás para impresionar a su hermano con una fuerza superior, o para mostrar que era un jefe poderoso. Jacob oró a Jehová y envió por delante un magnífico regalo de más de 550 cabezas de ganado. 

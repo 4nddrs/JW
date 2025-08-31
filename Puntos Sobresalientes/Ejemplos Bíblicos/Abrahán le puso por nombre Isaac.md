@@ -1,3 +1,5 @@
+[Aprendo de la Biblia | Lección 9](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102016019)
+
 El nombre Isaac significa “él se ríe” o “risa”. Esto está relacionado con dos momentos:  
   
 1. Abraham se rió (de gozo y asombro) cuando Dios le dijo que tendría un hijo a su edad (Génesis 17:17).  
