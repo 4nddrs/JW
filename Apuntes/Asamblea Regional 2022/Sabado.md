@@ -111,7 +111,7 @@
 ### Pida disculpas
 
 - Es importante pedir disculpas    
-- El amor es paciente y bondadoso
+- El [[Apuntes/Asamblea Regional 2022/Viernes#SERIE DE DISCURSOS El amor la clave para lograr la auténtica paz|amor]] es paciente y bondadoso
 - Se necesita valor y humildad para pedir disculpas
 - Juan 4:20
 - Hay que estar en paz con nuestros para que Jehova acepte nuestra adoración
