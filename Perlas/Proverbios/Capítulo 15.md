@@ -28,4 +28,4 @@ Para que nuestra enseñanza sea provechosa, debemos dedicar tiempo a investigar 
 
 Así, ya sea que tengamos una asignación en las reuniones o estemos predicando, quienes nos escuchen podrán beneficiarse de la enseñanza de Jehová.
 
-Al hacerlo, mostramos un profundo respeto por el privilegio que Jehová nos ha confiado y reflejamos nuestro amor sincero hacia las personas.
+Al hacerlo, mostramos un profundo respeto por el privilegio que Jehová nos ha confiado y reflejamos nuestro [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante |amor]] sincero hacia las personas.

@@ -404,7 +404,7 @@ Conclusión
                 
             - Jehová nos da varias recompensas por esta decisión
                 
-            - El nos promete un amor y cariño especial
+            - El nos promete un [[Apuntes/Asamblea Regional 2021/Viernes#...el amor de Dios|amor]] y cariño especial
                 
         - Después del bautismo no bajemos el ritmo
             

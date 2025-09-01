@@ -48,7 +48,7 @@
 >Fui joven y ahora soy viejo, pero **nunca he visto a un justo abandonado** ni a sus hijos buscando pan.
 
 >[!versiculo] 2 Timoteo 2:22
->Por eso, **huye de los deseos de la juventud** y busca la justicia, la fe, el amor y la paz, **junto con los que invocan al Señor con un corazón puro.**
+>Por eso, **huye de los deseos de la juventud** y busca la justicia, la fe, el [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante |amor]] y la paz, **junto con los que invocan al Señor con un corazón puro.**
 
 >[!versiculo] 2 Timoteo 2:24
 >El esclavo del Señor no tiene que pelear, sino que debe ser amable con todos, estar capacitado para enseñar, controlarse cuando lo tratan mal.

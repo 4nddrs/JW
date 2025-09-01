@@ -13,12 +13,26 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Puntos Sobresalientes/Atalaya/Qué nos enseñan las últimas palabras de Jacob (parte 2).md",
+                "file": "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Qué nos enseñan las últimas palabras de Jacob (parte 2)"
+              "title": "Apuntes de la Escuela del Ministerio del Reino"
+            }
+          },
+          {
+            "id": "baa5124d9aa0a07f",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "Apuntes/Asamblea Regional 2021/Viernes.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "Viernes"
             }
           }
         ]
@@ -53,7 +67,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "amor",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -61,7 +75,7 @@
                 "sortOrder": "alphabetical"
               },
               "icon": "lucide-search",
-              "title": "Buscar"
+              "title": "Search"
             }
           },
           {
@@ -74,7 +88,8 @@
               "title": "Marcadores"
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -170,20 +185,34 @@
   },
   "left-ribbon": {
     "hiddenItems": {
-      "bases:Crear nueva base": false,
-      "obsidian-git:Open Git source control": false,
-      "switcher:Abrir selector rápido": false,
-      "graph:Abrir vista gráfica": false,
-      "canvas:Crear nuevo lienzo": false,
-      "daily-notes:Abrir la nota de hoy": false,
-      "templates:Insertar plantilla": false,
-      "command-palette:Abrir paleta de comandos": false
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false,
+      "bases:Create new base": false,
+      "obsidian-git:Open Git source control": false
     }
   },
   "active": "488bbc35a1d66922",
   "lastOpenFiles": [
-    "Puntos Sobresalientes/Atalaya/Que nos enseñan las últimas palabras de Jacob (parte 1).md",
+    "Perlas/Proverbios/Capítulo 15.md",
+    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
+    "Apuntes/Asamblea Regional 2025/Sabado.md",
+    "Apuntes/Asamblea Regional 2021/Sabado.md",
+    "Perlas/Proverbios/Capítulo 3.md",
+    "Apuntes/Asamblea Regional 2021/Viernes.md",
+    "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
+    "Apuntes/Asamblea Regional 2022/Domingo.md",
+    "Discursos/Tesoros de la Biblia/Cómo nos beneficia tener amigos verdaderos.md",
+    "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
+    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
+    "Puntos Sobresalientes/Textos Bíblicos/Joven.md",
+    "Perlas/Proverbios/Capítulo 1.md",
+    "Apuntes/Asamblea Regional 2021/Domingo.md",
     "Puntos Sobresalientes/Atalaya/Qué nos enseñan las últimas palabras de Jacob (parte 2).md",
+    "Puntos Sobresalientes/Atalaya/Que nos enseñan las últimas palabras de Jacob (parte 1).md",
     "Puntos Sobresalientes/Atalaya/Podemos alabar a Jehová todo el día..md",
     "Puntos Sobresalientes/Textos Bíblicos/Clave para nunca equivocarme.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Jacob y Esaú hacen las paces.md",
@@ -191,23 +220,9 @@
     "Perlas/Proverbios/Capítulo 28.md",
     "Perlas/Proverbios/Capítulo 27.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Abrahán le puso por nombre Isaac.md",
-    "Apuntes/Escuelas Teocraticas/Apuntes de la Escuela del Ministerio del Reino.md",
-    "Discursos/Tesoros de la Biblia/Cómo nos beneficia tener amigos verdaderos.md",
     "Apuntes/Visita del Superintendente 01-2025/Se pondrá usted de parte de la adoración verdadera (Discurso Público).md",
-    "Apuntes/Visita del Superintendente 01-2025/Reunión con ancianos y siervos.md",
     "Apuntes/Visita del Superintendente 01-2025/Predicadores y Trabajadores (Reunión de Precursores).md",
-    "Apuntes/Visita del Superintendente 01-2025/Disfrute de hacer discípulos (Discurso de Servicio).md",
     "Apuntes/Visita del Superintendente 01-2025/Jehová estuvo con él y también está contigo.md",
-    "Discursos/Tesoros de la Biblia/¡Que los nervios no lo frenen!.md",
-    "Discursos/Seamos Mejores Maestros/Son buenas todas las religiones.md",
-    "Discursos/Seamos Mejores Maestros/Me salté las reglas... Y ahora qué.md",
-    "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
-    "Discursos/Nuestra Vida Cristiana/Ayudemos “sin una palabra” a nuestros seres queridos a acercarse a Jehová.md",
-    "Discursos/Conversaciones/Anime a un estudiante de la Biblia que está afrontando oposición de la familia.md",
-    "Perlas/Proverbios/Capítulo 1.md",
-    "Puntos Sobresalientes/Ejemplos Bíblicos/Noé.md",
-    "Puntos Sobresalientes/Textos Bíblicos/Botiquín Contra la Ansiedad.md",
-    "Puntos Sobresalientes/Textos Bíblicos/Joven.md",
     "Puntos Sobresalientes/Textos Bíblicos",
     "Puntos Sobresalientes/Atalaya",
     "Puntos Sobresalientes/Ejemplos Bíblicos",

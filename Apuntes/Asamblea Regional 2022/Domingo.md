@@ -65,7 +65,7 @@
 - Fred comprendió que las religiones de este mundo nunca conseguirán la paz, no son neutrales en las guerras
 - Los testigos de Jehova quieren estar en paz con todos
 - Juan 13:35
-- El amor entre nosotros es lo que nos caracteriza
+- El [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante |amor]] entre nosotros es lo que nos caracteriza
 
 #### Resumen
 

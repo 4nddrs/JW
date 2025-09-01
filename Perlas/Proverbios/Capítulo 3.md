@@ -26,7 +26,7 @@ Filipenses 4:6, hay que buscarlo siempre
 ##### **Versículo 11:** no rechaces la disciplina de Jehová
 Muchos ven la disciplina como algo negativo o perjudicial, pero en el versículo 11 leemos que no debemos rechazar la disciplina de Jehová, esto tiene sentido ya que la Su disciplina es perfecta.
 
-A través de ella,  Jehová nos moldea, nos corrige y nos enseña valiosas lecciones, y como dice el versículo 12, está disciplina proviene del amor que él nos tiene
+A través de ella,  Jehová nos moldea, nos corrige y nos enseña valiosas lecciones, y como dice el versículo 12, está disciplina proviene del [[Apuntes/Asamblea Regional 2021/Viernes#...el amor de Dios|amor]] que él nos tiene
 
 Cuando comprendemos el propósito de la disciplina de Jehová, la aceptamos con humildad y la actitud correcta, permitiendo que cumpla su propósito en nosotros.
 
