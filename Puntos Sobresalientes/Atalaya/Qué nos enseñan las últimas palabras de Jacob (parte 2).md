@@ -13,4 +13,7 @@ Esto nos enseña que aunque hagamos tareas pequeñas en la congregación o en la
 > `Nuestra buena disposición` **+** `La ayuda de Jehová` **=** `Tarea Cumplida`
 
 
+[***Atalaya, mayo de 2025 (párrafo 18)***](https://www.jw.org/finder?wtlocale=S&docid=2025441&srctype=wol&srcid=share&par=32)
 
+En la tribu de Benjamin **no** fueron leales a hombres, fueron leales a Jehová.
+Por esa razon ellos aceptaron los cambios que hizo Jehova al momento de cambiar a Saul por David para gobernar Israel. 
