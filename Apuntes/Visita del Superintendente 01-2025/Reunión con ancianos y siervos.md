@@ -60,5 +60,5 @@
 
 ### Conclusión 
 - No solo los ancianos tienen la tarea de cuidar el rebaño
-- Trabajemos en hacer crecer nuestro amor por el rebaño
+- Trabajemos en hacer crecer nuestro [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante |amor]] por el rebaño
 

@@ -11,7 +11,7 @@
 - Tal vez lo que nos dicen nos incomoda un poco al principio, pero en realidad nos están ayudando a vernos mejor y a mejorar.
 
 - Hoy vamos a analizar tres maneras en las que los amigos verdaderos son como ese espejo:
-	1. Nos dicen la verdad con amor y nos dan consejos sinceros.
+	1. Nos dicen la verdad con [[Apuntes de la Escuela del Ministerio del Reino#2. El Amor nos ayudará a seguir adelante |amor]] y nos dan consejos sinceros.
 	2. Están a nuestro lado, incluso más que los familiares, en momentos de necesidad.
 	3. Nos ayudan a crecer espiritualmente y a ser mejores personas.”
 

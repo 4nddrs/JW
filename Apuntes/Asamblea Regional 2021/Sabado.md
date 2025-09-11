@@ -54,7 +54,7 @@
 - **¿Cómo podemos hablar a personas que no son religiosos?**
 - Podemos hablar de la naturaleza.
 - Seamos amables y tengamos tacto.
-- Jesus siempre enseñaba con amor.
+- Jesus siempre enseñaba con [[Apuntes/Asamblea Regional 2021/Viernes#...el amor de Dios|amor]].
 - Seamos comprensivos y escuchemos. Escuchar es muy importante.
 - Hoy día tal como en el pasado, la voluntad de Jehová se está cumpliendo.
 - Le dedicamos nuestra vida a Jehová para hacer su voluntad.
@@ -147,7 +147,7 @@
 
 ### ...Oceanía - Fiyi
 
-- Jehová es el Dios de amor, ese amor le impulsó a darles todo el dinero que tenía.
+- Jehová es el Dios de amor, ese [[Apuntes/Asamblea Regional 2021/Viernes#...el amor de Dios|amor]] le impulsó a darles todo el dinero que tenía.
 - Cuanto más doy, más me da Jehová.
 ### ...Sudamérica - Perú
 

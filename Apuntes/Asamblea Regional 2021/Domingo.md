@@ -104,7 +104,7 @@
 
 # TARDE
 
-Podemos ser poderosos gracias a la fe.
+## Podemos ser poderosos gracias a la fe.
 
 - La fe es poderosa.
 - Aunque no podía ser posible, Abraham confiaba en Jehová.

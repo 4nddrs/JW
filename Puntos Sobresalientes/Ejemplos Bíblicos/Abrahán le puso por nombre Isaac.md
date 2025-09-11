@@ -6,3 +6,10 @@ El nombre Isaac significa “él se ríe” o “risa”. Esto está relacionado
 2. Sara también se rió, primero de incredulidad (Génesis 18:12) y luego de alegría al ver cumplida la promesa (Génesis 21:6).  
   
 💡 En resumen: Dios eligió el nombre para reflejar la reacción de gozo y sorpresa que acompañó el cumplimiento de Su promesa a Abraham y Sara, recordándoles siempre que nada es imposible para Él.
+
+###### Ideas Relacionadas:
+
+- [[Apuntes/Asamblea Regional 2021/Viernes#Discurso del Presidente.- ¿Cuánto poder tiene la Fe?|Asamblea Regional 2021 - Viernes - Discurso del Presidente.- ¿Cuánto poder tiene la Fe?]]
+- [[Apuntes/Asamblea Regional 2021/Domingo#Podemos ser poderosos gracias a la fe.|Asamblea Regional 2021 - Domingo - Podemos ser poderosos gracias a la fe]]
+
+
