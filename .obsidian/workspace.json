@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Puntos Sobresalientes/Ejemplos Bíblicos/Job.md",
+                "file": "Puntos Sobresalientes/Ejemplos Bíblicos/Moises.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Job"
+              "title": "Moises"
             }
           }
         ]
@@ -180,9 +180,10 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "488bbc35a1d66922",
+  "active": "a414bced316954f0",
   "lastOpenFiles": [
     "Puntos Sobresalientes/Ejemplos Bíblicos/Jehová no se olvida de José.md",
+    "Puntos Sobresalientes/Ejemplos Bíblicos/Moises.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Job.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Jacob y Esaú hacen las paces.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Abrahán le puso por nombre Isaac.md",
@@ -207,7 +208,6 @@
     "Perlas/Proverbios/Capítulo 11.md",
     "Perlas/Proverbios/Capítulo 12.md",
     "Perlas/Proverbios/Capítulo 13.md",
-    "Perlas/Proverbios/Capítulo 14.md",
     "Puntos Sobresalientes/Textos Bíblicos",
     "Puntos Sobresalientes/Atalaya",
     "Puntos Sobresalientes/Ejemplos Bíblicos",
