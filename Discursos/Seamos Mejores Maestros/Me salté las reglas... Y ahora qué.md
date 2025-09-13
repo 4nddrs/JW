@@ -48,7 +48,7 @@ Como dijo Olivia:
 
 ---
 
-#### ✔️ **Segundo: Pide perdón**
+##### ✔️ **Segundo: Pide perdón**
 
 
 >[!versiculo] 1 Pedro 5:5 
@@ -63,7 +63,7 @@ Heather lo expresó así:
 
 ---
 
-#### ✔️ **Tercero: Acepta las consecuencias**
+##### ✔️ **Tercero: Acepta las consecuencias**
 
 - Nadie disfruta ser castigado.  
 - Pero **aceptar las consecuencias sin quejas ni reclamos** demuestra que estás aprendiendo.
@@ -74,7 +74,7 @@ Heather lo expresó así:
 
 ---
 
-#### ✔️ **Cuarto: Vuelve a ganarte su confianza**
+##### ✔️ **Cuarto: Vuelve a ganarte su confianza**
 
 - La confianza no vuelve sola con el tiempo.  
 - **Se reconstruye con hechos, no con palabras.**  
