@@ -508,8 +508,10 @@
 - Jesús nota y aprecia incluso las cosas pequeñas que hacemos
 - Si estamos dando el máximo a Jehová, no dudemos de que él está contento
 - Será que cuando Jesús nos ve dice: Este hermano tiene potencial
+
 >[!Important]
 >Jesús no nos obliga a servirle, pero se pone muy feliz cuando decidimos hacerlo
+
 - Jesús es muy consciente de nuestro potencial, y él nos ayuda a alcanzarlo
 
 #### Conclusión
