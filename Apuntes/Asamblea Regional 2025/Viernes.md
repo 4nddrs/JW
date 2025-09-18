@@ -9,7 +9,7 @@
 - Adoración = Respeto y Amor
 - Implica más que un sentimiento, implica acciones
 - Lo que nos motiva a actuar es el amor que sentimos por Jehová
-- Por qué se titula: Adoración Pura?
+- Por qué se titula: **Adoración Pura?**
     - A Jehová no le agrada cualquier tipo de adoración
 - Adoración Pura
     - Adoramos solo a Jehová
@@ -22,9 +22,9 @@
     - No somos parte de este mundo
         - No es algo del momento
         - Es una forma de vivir
-- Como está defendiendo Jesús a la adoración pura?
+- **Como está defendiendo Jesús a la adoración pura?**
     - Lo hace dándonos todas las herramientas necesarias
-- Y como lo hizo antes?
+- **Y como lo hizo antes?**
     - Defendió
         - Mateo 4:10
         - Le rindió servicio a Dios
@@ -40,11 +40,11 @@
         - La adoración pura se apoya en la verdad
 - Estos 3 textos tiene que ver con el ministerio de Jesús
 - Veremos el ministerio Jesús y como lo llevo acabo
-- Por qué Jehová preparo esta asamblea?
-- Isaias 48: 17, 18
-    - Nos enseña para nuestro propio bien
-    - Para que obtengamos paz
-    - El nos guía mediante esta asamblea para que lo adoremos como él quiere
+- **Por qué Jehová preparo esta asamblea?**
+	- Isaias 48: 17, 18
+	    - Nos enseña para nuestro propio bien
+	    - Para que obtengamos paz
+	    - El nos guía mediante esta asamblea para que lo adoremos como él quiere
 
 ### 10:50 SERIE DE DISCURSOS: ¡Las profecías sobre el Mesías se cumplieron! (Parte 1)
 
