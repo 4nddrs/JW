@@ -1,5 +1,7 @@
 [Aprendo de la Biblia | Lección 18](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102016028)
 
+##### Jehová ve nuestro potencial 
+
 En este momento Moisés aún tenía muchos aspectos a mejorar, el mismo no se sentía capaz de ser el líder de Israel.
 Pero Jehová vio más allá, él vio el potencial que tenía Moisés, por eso lo eligió para ser la persona que guiará a su pueblo.
 ###### Lección:
