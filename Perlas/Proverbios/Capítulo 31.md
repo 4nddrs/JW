@@ -5,7 +5,7 @@ La primera parte del versículo me parece muy interesante ya que dice que el esp
 Uno debe demostrar esa confianza con acciones, y como lo hace?  
 Una manera es de que el esposo no debe esperar que su esposa le pida permiso para todo lo que haga, hay cosas importantes que se deben consultar entre ambos cónyuges.  
   
-Pero hay otras en las que la esposa puede decidir por su cuenta, y ella se sentirá cómoda en hacerlo si su esposo demuestra que confía en ella de todo corazón
+Pero hay otras en las que la esposa puede decidir por su cuenta, y ella se sentirá cómoda en hacerlo si su esposo demuestra que confía en ella de todo corazón 
 
 ##### Versículo 16: “Se decide por un campo y lo compra; planta una viña con el fruto de su trabajo”
 
@@ -37,4 +37,4 @@ Me gusta mucho como termina el libro de Proverbios, en el versículo 31 leemos: 
   
 Pues todo el capítulo 31 es un reconocimiento del rey Lemuel a todo lo que le había enseñado su propia madre, en el versículo 1 el reconoce que su mensaje se basaba en gran parte en la instrucción que había recibido de su madre.  
   
-Y el hecho de que estas palabras queden registradas en la Biblia demuestra
+Y el hecho de que estas palabras queden registradas en la Biblia demuestra como Jehová ve a las mujeres y valora mucho todo el trabajo que hacen. Y nos enseña a todos a hacer lo mismo
