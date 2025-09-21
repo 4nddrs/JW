@@ -117,7 +117,7 @@
 - 1 Pedro 5:2
 - Debemos velar por el rebaño con mucha atención
 - 1 Corintios 4:4
-- Debemos pedir consejo a otros
+- Debemos pedir [[Cómo pedir consejo|consejo]] a otros
 - 1 Corintios 10:31
 - Debemos trabajar para la gloria de Dios
 - No nos desanimemos si el nombramiento no llega, sigamos trabajando

@@ -32,7 +32,7 @@
 	- Si un hermano nos dice con discreción que tenemos algo de comida entre los dientes, al inicio nos da vergüenza, pero luego agradecemos su sinceridad. De la misma manera, cuando un buen amigo nos corrige en asuntos espirituales o de personalidad, lo hace para nuestro bien.
 
 - Como podemos aplicar lo que acabamos de aprender?
-	- Un consejo puede incomodarnos al principio, pero si viene de un amigo que nos ama, debemos aceptarlo con humildad.
+	- Un [[Cómo pedir consejo|consejo]] puede incomodarnos al principio, pero si viene de un amigo que nos ama, debemos aceptarlo con humildad.
 
 ---
 
