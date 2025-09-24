@@ -4,7 +4,7 @@
 - Puede que tengamos cosas que nos quiten la paz
 - Como podemos hacer frente a cualquier situación o cambio de circunstancias?
 #### Dejemos que Jehová nos acompañe
-- Cambios que tuvo que enfrentar José :
+- Cambios que tuvo que enfrentar José:
 	- De niño mimado -> A ser esclavo en Egipto
 	- De esclavo -> A prisionero
 	- De prisionero -> A ser el 2do más importante en Egipto

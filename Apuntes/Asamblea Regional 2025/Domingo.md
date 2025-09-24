@@ -229,7 +229,7 @@
 	
     3. **Examinar la Biblia sin prejuicios**
         - Debemos rechazar las enseñanzas falsas
-        - En muchas ocasiones las otras religiones distorsionan la verdad
+        - En muchas ocasiones las otras [[Son buenas todas las religiones|religiones]] distorsionan la verdad
         - Mucha veces los líderes religiosos no enseñan la verdad
         - Eso es porque se concentran en lo que las personas quieren escuchar y no lo que necesitan escuchar
         - La palabra se Jehová es útil para `enseñar`, **censurar** y `rectificar`

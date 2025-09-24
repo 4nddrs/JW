@@ -18,7 +18,7 @@
 		- Si nos capacitamos estamos demostrando que queremos cumplir la labor que nos dio Jehová de la mejor manera.
 		- Como vemos la Biblia?
 		- Éxodo 4:2-5
-		- Gracias a esta prueba Moises pudo representar a Dios con confianza 
+		- Gracias a esta prueba [[Moises|Moises]] pudo representar a Dios con confianza 
 		- Al igual que Moisés tenía una vara, Jehová nos ha dado una herramienta, La Biblia
 		- Hebreos 4:12
 		- Jehová utiliza la Biblia para cambiar a las personas

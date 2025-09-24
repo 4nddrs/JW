@@ -84,7 +84,7 @@
 
 - Romanos 14:7-9(⭐️).- La muerte no cambia lo que somos para Jehová.
 - Todos tienen la esperanza de resucitar. Para una resurrección de vida o juicio.
-- Job 14:13.- Job no murió para siempre, a diferencia de las estrellas Jehová quiere resucitarnos. Jehová tiene la memoria, el poder y el deseo de resucitar.
+- Job 14:13.- [[Job|Job]] no murió para siempre, a diferencia de las estrellas Jehová quiere resucitarnos. Jehová tiene la memoria, el poder y el deseo de resucitar.
 - Observemos las estrellas para fortalecer nuestra Fe en la resurrección.
 ### Los océanos
 
@@ -205,7 +205,7 @@
 ### Imitemos a Moisés, no al faraón.
 
 - Moises era un hombre humilde.
-- Al igual que Moises todos pasamos por situaciones difíciles que ponen a prueba nuestra fe.
+- Al igual que [[Moises|Moises]] todos pasamos por situaciones difíciles que ponen a prueba nuestra fe.
 - Moises...
 	- rechazo la mala actitud que tenían los egipcios.
 	- vio que la comisión de Jehová tenia mas valor.

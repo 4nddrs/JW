@@ -56,7 +56,7 @@
 - En todos los caminos hay límites, esos límites están para protegernos.
 - Nos irá bien si respetamos los límites
 - Podemos buscar formas de hacer cosas buenas por los demás
-- Sigamos ajustando nuestros pensamientos y acciones para estar en paz con todos.
+- Sigamos ajustando nuestros [[Apuntes de la Escuela del Ministerio del Reino#Como podemos dominar nuestra mente?|pensamientos]] y acciones para estar en paz con todos.
 
 # Tarde
 
@@ -119,7 +119,7 @@
 
 ### Este dispuesto a perdonar    
 
-- Job fue leal y estuvo dispuesto a perdonar
+- [[Job|Job]] fue leal y estuvo dispuesto a perdonar
 - Jehova bendijo a Job
 - No dejemos pasar la oportunidad de imitar a Jehova al momento de perdonar
 

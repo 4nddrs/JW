@@ -80,7 +80,7 @@
 - 1 Juan 4:8
 - Todo lo que Jehová hace es por amor
 - Podemos preocuparnos personalmente por cada integrante
-- Si cumplimos con nuestras responsabilidades familiares alabaremos a Jehová
+- Si cumplimos con nuestras responsabilidades familiares [[Podemos alabar a Jehová todo el día.|alabaremos]] a Jehová
 
 
 ## Esfuércense por una labor muy buena
@@ -182,7 +182,7 @@
 - Como nos guia Jehová?
 - Mediante su palabra la Biblia
 - Debemos entrenar nuestra conciencia
-- Esta nos guiara para tomar decisiones
+- Esta nos guiara para tomar [[Num. 50 Como tomar buenas decisiones|decisiones]]
 - 2 Corintios 2:17
 - Jehová nos dio libertad de elección
 

@@ -38,7 +38,7 @@
 
 ## LECTURA BÍBLICA DRAMATIZADA:
 
-- Jacob, un hombre que amaba **la paz**
+- [[Que nos enseñan las últimas palabras de Jacob (parte 1)|Jacob]], un hombre que amaba **la paz**
 	- Debemos esforzarnos por siempre buscar la paz
 	- Jehová nunca olvidará nuestros esfuerzos por buscar la paz.
 
