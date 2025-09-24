@@ -5,5 +5,5 @@ Me llama la atención de que Jose siempre disfruto de la felicidad verdadera pes
 Podemos aprender una lección muy importante:
 
 >[! Important]
->Si somos leales a Jehová siempre disfrutaremos de la felicidad verdadera, sin importar nuestras circunstancias
+>Si somos leales a Jehová siempre disfrutaremos de la [[Jehová no se olvida de José|felicidad]] verdadera, sin importar nuestras circunstancias
 

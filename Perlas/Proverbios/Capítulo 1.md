@@ -11,7 +11,7 @@ Para obtener conocimiento primero debemos cultivar profundo respeto por Jehová,
 Y más adelante ese conocimiento que hemos adquirido se convertirá en sabiduría.
 
 ##### **Versículo 9:** Son una hermosa corona para tu cabeza
-Que los hijos obedezcan a los padres se compara a una hermosa corona, ya que esto refleja honor para Jehová. 
+Que los [[Apuntes de la Escuela del Ministerio del Reino#Hijos|hijos]] obedezcan a los padres se compara a una hermosa corona, ya que esto refleja honor para Jehová. 
 Esto nos enseña que si nuestros padres nos dan consejos basados en la Biblia, Jehová quiere que los obedezcamos.
 
 ##### **Versículo 15:** Mantén tus pies lejos de su camino

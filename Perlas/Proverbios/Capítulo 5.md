@@ -12,6 +12,6 @@ Esto enfatiza la importancia de la advertencia que estaba a punto de dar, y es l
 Esta advertencia tiene mucho peso, ya que puede llegar a salvarnos la vida y evitarnos muchos dolores en el futuro.
 
 ##### **Versículo 21:** los caminos del hombre están ante los ojos de Jehová
-El versículo 21 nos recuerda que todo lo que hacemos no es un secreto para Jehová, él está al pendiente de nosotros. Esto no es algo malo sino que demuestra un interés sincero de parte de Él, Jehová solo quiere que consigamos la felicidad verdadera.
+El versículo 21 nos recuerda que todo lo que hacemos no es un secreto para Jehová, él está al pendiente de nosotros. Esto no es algo malo sino que demuestra un interés sincero de parte de Él, Jehová solo quiere que consigamos la [[Jehová no se olvida de José|felicidad]] verdadera.
 
 Por eso, cuando enfrentemos una tentación inmoral, debemos recordar que ningún instante de satisfacción egoísta vale la pena si pone en peligro nuestra relación con Él.

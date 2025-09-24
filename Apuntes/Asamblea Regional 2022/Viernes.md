@@ -43,7 +43,7 @@
 	- Jehová nunca olvidará nuestros esfuerzos por buscar la paz.
 
 - El resultado de la verdadera rectitud será paz
-	- La Biblia dice que Noe era diferente, era un hombre Justo.
+	- La Biblia dice que [[Noé|Noe]] era diferente, era un hombre Justo.
 	- La paz es el resultado de la rectitud
 	- Satanas quiere que seamos como la gente de este mundo.
 	- Jehová piensa que los actos homosexuales están mal.

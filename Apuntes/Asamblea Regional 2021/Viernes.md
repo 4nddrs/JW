@@ -30,7 +30,7 @@
 
 - Vivir según normas agradables a Jehová, como Pablo.
 - Las normas son beneficiosas y protegen física, emocional y espiritualmente.
-- Obedecer a Jehová trae sabiduría, paz y felicidad.
+- Obedecer a Jehová trae sabiduría, paz y [[Jehová no se olvida de José|felicidad]].
 - Beneficios: conciencia tranquila, felicidad, vida eterna.
 ### ...el amor de Dios
 

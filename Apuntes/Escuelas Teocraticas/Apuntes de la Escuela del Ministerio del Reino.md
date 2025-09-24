@@ -1,7 +1,7 @@
 # Pongámonos al frente del ministerio con valor
 
 - Somos maestros de las buenas noticias
-- Pase lo que pase queremos seguir siendolo
+- Pase lo que pase queremos seguir siéndolo
 - 1 Tesalonicenses 2:2
 - Como podemos estar al frente? Compartir el entusiasmo?
 
@@ -40,7 +40,7 @@
 - Debemos ser prudentes y astutos
 - Mateo 10:39
 - Jesús fue prudente
-- En este discurso se nos recordó la importancia de ser valientes, y en el futuro lo necesitaremos más valor
+- En este discurso se nos recordó la importancia de ser valientes, y en el futuro lo necesitaremos más [[Se pondrá usted de parte de la adoración verdadera (Discurso Público)#El Valor|valor]]
 - En el futuro tendremos que ser valientes para obedecer las instrucciones
 - Roguemos a Jehová para que nos dé valor
 - Todos nosotros somos como antorchas, podemos contagiar entusiamo
@@ -68,31 +68,18 @@
 - No dejemos que el tiempo nos aleje de ella, sino todo lo contrario
 
 #### Hijos
-
 - Debemos enseñar con el ejemplo
-    
 - Si enseñamos con el ejemplo los hijos se darán cuenta que esta es la verdad
-    
 - Actividades como el estudio en familia y la predicación nos une como familia
-    
 - Cuando un cabeza de familia no cumple su valor
-    
 - Es como un automóvil sin volante
-    
 - Oremos a Jehová por ayuda y meditemos en sus consejos
-    
 - Debemos cuidar y guiar a la familia con alegría y amor
-    
 - 2 Samuel 22: 36
-    
 - Jehová tiene poder pero nos da la oportunidad de hacer su voluntad
-    
 - 1 Juan 4:8
-    
 - Todo lo que Jehová hace es por amor
-    
 - Podemos preocuparnos personalmente por cada integrante
-    
 - Si cumplimos con nuestras responsabilidades familiares alabaremos a Jehová
 
 
@@ -439,6 +426,6 @@
 - Salmo 78:72
 - Pastorear requiere trabajo duro y habilidad
 - El amor a los demás nos mueve a hacerlo
-- Jehová bendecirá todos nuestros esfuerzos
+- Jehová [[¡Que los nervios no lo frenen!#Jehová necesita algo que bendecir ✋📚|bendecirá]] todos nuestros esfuerzos
 - Todos tenemos distintas tareas, pero las hacemos con gozo motivados por el amor a Jehova y a los hermanos
 - La canción a terminado, pero la melodía perdura

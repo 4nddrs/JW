@@ -37,7 +37,7 @@
 - `Como podemos imitar a Andrés?`
 	- Andrés hizo lo que Jesús le pidió
 	- Dediquemos tiempo a meditar en lo que crees y por qué lo crees
-    - No dudes en hacer más en el ministerio
+    - No dudes en hacer más en el [[Predicadores y Trabajadores (Reunión de Precursores)|ministerio]]
 	- Estamos dispuestos a hacer sacrificios que demuestren nuestro amor por Jehová?
 
 - Andrés estuvo dispuesto a dejar todo para apoyar a Jesús    
@@ -347,7 +347,7 @@
 	- Uno puede ser generoso de forma económica, pero igual con nuestras energías
 	- También podemos animar a nuestros hermanos felicitándolos
 	- Si lo hacemos de forma generosa, Jehová y los demás nos darán de forma generosa
-	- Jehová nos recompensa, nos da felicidad
+	- Jehová nos recompensa, nos da [[Jehová no se olvida de José|felicidad]]
 	- Cuando damos nos centramos en la otra persona, eso da felicidad
 
 - La generosidad es un acto de fe y amor    
