@@ -1,6 +1,6 @@
 ##### Versículo 14: Tenía que ofrecer sacrificios de paz. Hoy cumplí mis votos
 En el versículo 14 leemos que esta mujer descarriada había ofrecido sacrificios de paz, dando a entender que era espiritualidad. 
-Lamentablemente el [[Capítulo 1 |joven]] cayó en la trampa, se dejó llevar por lo que escuchó y cayó en la trampa.
+Lamentablemente el [[Perlas/Proverbios/Capítulo 1|joven]] cayó en la trampa, se dejó llevar por lo que escuchó y cayó en la trampa.
 
 ##### Versículo 23: él no tiene ni idea de que esto le costará la vida
 Nosotros no queremos ser como este Joven, y Jehová nos da una guía confiable sobre lo que está bien o mal. 
