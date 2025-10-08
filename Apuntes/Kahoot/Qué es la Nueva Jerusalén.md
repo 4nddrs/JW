@@ -1,3 +1,4 @@
+[¿Qué es la Nueva Jerusalén?](https://www.jw.org/finder?wtlocale=S&docid=502018134&srcid=share)
 ### 1️⃣
 
 **Pregunta:** ¿Qué representa la “nueva Jerusalén” según Revelación 21:2?  
@@ -42,7 +43,7 @@
 
 **Pregunta:** ¿Cuál es el propósito del “río de agua de vida” que fluye desde la ciudad?  
 **Respuesta correcta:** Dar vida espiritual y restaurar la perfección humana.  
-**Referencia:** Revelación 22:1,2; Romanos 8:21.  
+**Referencia:** **Revelación 22:1,2**; Romanos 8:21.  
 **Explicación:** El río y los árboles de vida representan los medios por los cuales Dios eliminará el pecado y restaurará la salud y perfección de la humanidad.
 
 ---

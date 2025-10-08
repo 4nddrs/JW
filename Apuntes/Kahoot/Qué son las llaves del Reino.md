@@ -1,3 +1,4 @@
+[¿Qué son las llaves del Reino?](https://www.jw.org/finder?wtlocale=S&docid=502017107&srcid=share)
 ### 1️⃣
 
 **Pregunta:** ¿Qué representan “las llaves del reino”?  
