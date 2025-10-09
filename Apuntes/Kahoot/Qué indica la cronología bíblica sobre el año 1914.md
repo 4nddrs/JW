@@ -24,7 +24,7 @@
 
 **Pregunta:** ¿Cuánto duró la locura de Nabucodonosor según el relato bíblico?  
 **Respuesta correcta:** Siete años  
-**Referencia:** “Pasó un período de siete años en ese estado.” (Daniel 4:25, 34-36)
+**Referencia:** “Pasó un período de siete años en ese estado.” (Daniel 4:25, 34-36) ''
 
 ---
 ### 5️⃣
