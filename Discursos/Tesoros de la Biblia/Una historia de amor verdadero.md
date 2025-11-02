@@ -1,0 +1,10 @@
+- Esta semana comenzamos un nuevo libro de la Biblia: _El Cantar de los Cantares_.
+- Es un libro diferente, pues presenta un poema de amor entre un joven pastor y una sulamita.
+- A medida que avancemos, veremos qué es el amor verdadero: un amor limpio, fuerte y leal.
+- También aprenderemos cómo Jehová ve el amor y cómo desea que sea algo puro, bonito y respetuoso entre dos personas.
+- No olvidemos que Jehová se encargó de que este libro esté en la Biblia.
+- Eso nos enseña que, sin importar nuestra edad o circunstancias, Jehová quiere que aprovechemos al máximo este libro.
+- Y Jehova no nos deja solos, el nos dio muchas ayudas para poder sacar el máximo beneficio al Cantar de los Cantares.
+- Una de esas herramientas es el video que vamos a ver ahora, titula: 
+	- **Información sobre El Cantar de los Cantares**
+- 
