@@ -2,14 +2,15 @@
 - Es un libro diferente, pues presenta un poema de amor entre un joven pastor y una sulamita.
 - A medida que avancemos, descubriremos qué es el amor verdadero a los ojos de Jehová 
 ---
-- No olvidemos que Jehová se encargó de que este libro esté en la Biblia.
+- No olvide que Jehová se encargó de que este libro esté en la Biblia.
 - Eso nos enseña que, sin importar nuestra edad o circunstancias, Jehová quiere que aprovechemos al máximo este libro.
 - Y Jehova no nos deja solos, el nos dio muchas ayudas para poder sacar el máximo beneficio a este libro.
 - Una de esas herramientas es el video que vamos a ver ahora, titula: 
 	- **Información sobre El Cantar de los Cantares**
 ---
 - Muy bien, esta semana nos toca analizar los capítulos 1 y 2.
-- Según el video, nos encontramos en **Sunem**.
+- Según el video, nos encontramos cerca de **Sunem**. 
+- Tal como vemos en la imagen.
 - Salomón esta en su campamento y manda a traer a la sulamita.
 - Y le dice lo que vamos a leer en:
 
@@ -39,22 +40,23 @@
 - Sus palabras eran mejores que el vino, le alegraban el corazón y le daban fuerzas.
 - También pensaba en la buena reputación que tenia el pastor, el era un hombre: fiel, tierno y confiable.
 - Por eso…
-- Aunque el rey Salomón intentó impresionarla con riquezas y halagos, esos recuerdos sinceros del amor de su pastor fueron más fuertes que cualquier tentación.
+- Aunque el rey Salomón intentó impresionarla con riquezas y halagos, esos  recuerdos sinceros del amor de su pastor fueron más fuertes que cualquier tentación.
 - La Sulamita valoraba más el amor genuino y leal que los lujos o las apariencias
 ---
 - Esto nos hace saber que ese amor que tenían no era solo romántico, sino que también estaba basado en:
 	- respeto
 	- admiración 
-	- y principios.
+	- y principios. 
 
 - Lo que la mantuvo firme fue pensar en lo que habían construido juntos, en las palabras y detalles que fortalecieron su relación.
 ---
 - Y nosotros… que podemos aprender?
-- Que las palabras y muestras de cariño sinceras dejan una huella profunda. 
+- Que las palabras y muestras de cariño sinceras dejan una huella profunda en una relación.
 - Cuando las dos personas las recuerdan y las repiten, su amor se fortalece.
 - Por eso nunca permita que cosas como el trabajo o las obligaciones diarias le roben el tiempo para expresar cariño a su pareja.
 - Si nos esforzamos por poner estos consejos en practica.
 - Cultivaremos un amor verdadero a los ojos de Jehová.
+- Y eso nos garantiza el éxito en nuestra relación.
 ---
 - Hemos aprendido bastante en este discurso, y es gracias a que Jehová nos dio herramientas para sacarle el máximo provecho a este libro.
 - Una de ellas es mencionada en la guía de actividades, 
@@ -64,8 +66,8 @@
 	- Ahi seleccionamos el libro
 	- Y ese icono en la parte superior derecha
 - Esto nos sera de gran ayuda en nuestro estudio personal.
----
 - Estamos seguros que gracias a estas herramientas y al espíritu santo de Jehová le sacaremos el máximo provecho a este libro en las próximas semanas.
+---
 - Pero estoy seguro que ya empezaron a hacerlo al preparase para esta reunion.
 - Estamos deseosos de escuchar las lindas perlas encontraron.
 - Así que continuemos con la reunion.
