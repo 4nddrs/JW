@@ -1,0 +1,3 @@
+[Aprendo de la Biblia | Lección 32](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102016042)
+
+En [Jueces 4:17](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=07004001-07005031&pub=nwtsty) leemos que la familia de Jael estaba en paz con el rey, pero Jael no se dejó influenciar, sino que fue leal a Jehová y actuó a favor de el. Por esa razón recordamos a Jael como una mujer valiente
