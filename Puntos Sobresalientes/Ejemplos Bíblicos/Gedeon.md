@@ -41,83 +41,30 @@ La acústica natural del lugar jugó a favor de Gedeón
 	- Imposibilidad de identificar de dónde venía el ataque.
 	- Impresión de que el enemigo era mucho más numeroso.
 
-La confusión fue total antes de que ellos siquiera se acercaran.
-
+- La confusión fue total antes de que ellos siquiera se acercaran.
   
+#### El grito unificado aumentó el terror
 
-  
+- Los 300 gritaron al mismo tiempo:
+	- “¡La espada de Jehová y de Gedeón!”
 
-  
+- En la oscuridad, rodeados de luces, con el estruendo de los jarrones y el eco de las montañas, el grito colectivo habría sonado como miles de soldados cargando al ataque.
 
-  
+#### El resultado: confusión interna
 
-5. El grito unificado aumentó el terror
+- Debido al miedo, la oscuridad y la sorpresa, los madianitas:
+	- No distinguían quién era aliado o enemigo.
+	- Tomaron a sus propios compañeros por atacantes.
+	- “Jehová hizo que se volviesen unos contra otros” (Jueces 7:22).
 
-  
-
-  
-
-Los 300 gritaron al mismo tiempo:
-
-  
-
-“¡La espada de Jehová y de Gedeón!”
-
-  
-
-En la oscuridad, rodeados de luces, con el estruendo de los jarrones y el eco de las montañas, el grito colectivo habría sonado como miles de soldados cargando al ataque.
-
-  
-
-  
-
-  
-
-  
-
-6. El resultado: confusión interna
-
-  
-
-  
-
-Debido al miedo, la oscuridad y la sorpresa, los madianitas:
-
-  
-
-- No distinguían quién era aliado o enemigo.
-- Tomaron a sus propios compañeros por atacantes.
-- “Jehová hizo que se volviesen unos contra otros” (Jueces 7:22).
-
-  
-
-  
-
-En la confusión total, se mataron entre ellos intentando escapar.
-
-  
-
-  
-
-  
-
-  
-
-En resumen, la estrategia de los cántaros funcionó porque:
-
-  
-
-  
-
+- En la confusión total, se mataron entre ellos intentando escapar.
+ 
+##### En resumen, la estrategia de los cántaros funcionó porque:
 - Ocultaban las antorchas hasta el momento perfecto.
 - El estruendo se amplificó en las montañas.
 - La aparición repentina de 300 luces parecía un ejército enorme.
 - La división en 3 grupos creó la sensación de cerco.
 - El grito unificado generó terror psicológico.
 - Jehová aprovechó el miedo del enemigo para llevarlos a la autodestrucción.
-
-  
-
-  
-
+ 
 La victoria no dependió de fuerza militar, sino de táctica, sorpresa, psicología… y la intervención de Jehová.
