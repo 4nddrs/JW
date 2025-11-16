@@ -14,3 +14,6 @@
 ### Es diligente y trabajador.
 - Colosenses 3:23 — Trabaja como si sirviera a Dios.
 - Proverbios 22:29 — La habilidad y constancia llevan a excelencia.
+
+
+	
