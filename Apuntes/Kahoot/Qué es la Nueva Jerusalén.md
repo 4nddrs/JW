@@ -1,6 +1,5 @@
 [¿Qué es la Nueva Jerusalén?](https://www.jw.org/finder?wtlocale=S&docid=502018134&srcid=share)
-### 1️⃣
-
+### 1
 **Pregunta:** ¿Qué representa la “nueva Jerusalén” según Revelación 21:2?  
 **Respuesta correcta:** La novia de Cristo, el grupo de ungidos que reinarán con él.  
 **Referencia:** Revelación 21:2; 3:12.  

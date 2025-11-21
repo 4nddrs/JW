@@ -1,5 +1,5 @@
 [¿Qué indica la cronología bíblica sobre el año 1914?](https://www.jw.org/finder?wtlocale=S&docid=502014148&srcid=share)
-### 1️⃣
+### 1
 
 **Pregunta:** ¿En qué año indica la cronología bíblica que se estableció el Reino de Dios en los cielos?  
 **Respuesta correcta:** 1914  
