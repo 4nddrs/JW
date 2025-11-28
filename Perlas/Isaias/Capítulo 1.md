@@ -35,3 +35,7 @@ Jehová no nos obliga a hacer algo, el nos dio un regalo que es el libre albedr�
 Pero Jehová también nos ama, y no forma de demostrar su amor es advirtiéndonos de las consecuencias de nuestras acciones. 
 
 Nosotros igual tenemos el regalo de tomar nuestras propias decisiones, así que utilicemos bien ese regalo y hagamos feliz a Jehová tomando decisiones que nos protejan y hagan feliz a Jehová.
+
+##### Versículo 21: “¡Mira cómo la ciudad fiel se ha convertido en una prostituta! Estaba llena de justicia; la rectitud se alojaba en ella, pero ahora solo hay asesinos.”
+
+Este texto nos muestra que incluso una persona que es justa y recta puede llegar a abandonar a Jehová. E ahí la importancia de siempre estar alertas a cualquier situación o incluso pensamiento que pueda desviarnos de una adoración pura.  
