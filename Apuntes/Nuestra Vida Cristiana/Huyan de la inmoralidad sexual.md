@@ -10,5 +10,6 @@ Uno podria pensar que el hermano no había cometido un pecado grave, de que no e
 En realidad estaba haciendo todo lo contrario, se estaba exponiendo a situaciones peligrosas que ponían en riesgo su amistad con Jehová, estaba muy cerca de cometer un error muy grave.
 
 ---
+
 También me llamo la atención de que lo que ayudo al joven a detenerse y pensar en lo que estaban haciendo fue una **adoración en familia**. 
 Eso me hace pensar de que actividades como el estudio de familia y el estudio personal son importantes para mantenernos alertas.
