@@ -169,3 +169,22 @@
 	- No nos compliquemos
 	- Quitemos las cargas innecesarias
 	- Encontrar alivio
+
+### Discurso Final
+- Hebreos 4:14
+- Jesús entra y es aceptado por Jehová 
+- Desde ese momento Jesús nos ayuda en esta labor
+- Hebreos 4:15,16
+	- Esto nos da confianza de que Jesús estuvo en la tierra 
+	- El vivió como humano
+	- Ahora el puede hablar a favor nuestro
+	- Pero nosotros tenemos que hacer lo que leemos en el versículo 16
+		- Debemos acercarnos a él con confianza
+		- Jehová quiere que le oremos con frecuencia y le contemos nuestras preocupaciones 
+		- En este texto leemos que este trono es de bondad **inmerecida**
+		- Esta reunión puede es una muestra de bondad
+	- Juan 14:27
+		- Acá Jesús nos prometió que nos dará su paz
+		- Contamos con la aprobación de Jehová y Jesús 
+		- Cuando estamos en la predicación sabemos que contamos con la aprobación de Jehová y Jesús 
+
