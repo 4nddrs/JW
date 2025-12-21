@@ -188,4 +188,5 @@
 		- Contamos con la aprobación de Jehová y Jesús 
 		- Cuando estamos en la predicación sabemos que contamos con la aprobación de Jehová y Jesús 
 - **“No estás enfrentando nada a que Jehová no te haya preparado”**
-- 
+- [¿Se beneficiará usted de la bondad inmerecida?](https://www.jw.org/finder?wtlocale=S&docid=1990126&srctype=wol&srcid=share&par=1)
+- Isaías 41:10
