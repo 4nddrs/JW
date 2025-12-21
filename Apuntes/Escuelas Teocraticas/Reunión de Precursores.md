@@ -165,7 +165,7 @@
 	- Conseguiremos consuelo interno
 	- Los efectos de este consuelo nunca terminarán 
 - Que aprendimos:
-	- Compartamos las cargas con Jehová y Jesús 
+	- Compartamos las cargas con Jehová y Jesus 
 	- No nos compliquemos
 	- Quitemos las cargas innecesarias
 	- Encontrar alivio
