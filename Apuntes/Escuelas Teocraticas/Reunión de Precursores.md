@@ -56,4 +56,24 @@
 - 1 Pedro 5:8
 	- Cuando surgen desacuerdos son oportunidades para aplicar los principios bíblicos
 - Mateo 5:23-24
-- 
+- Sigamos brillando con apacibilidad y humildad porque eso agrada a Jehová y le da gloria.
+
+#### Disfruten de paz interior siendo apacibles y humildes
+- Como dormiste hoy?
+- Job 7:4
+- A veces dormir no es fácil, ya sea por distintos problemas que podemos llegar a tener
+- Mateo 11:29
+- 2 Timoteo 2:24-25
+- Uno podría pensar que ser apacible es signo de debilidad
+- Pero es todo lo contrario… requiere gran fuerza de voluntad.
+- La apacibilidad es parte del fruto del espíritu
+- Ante las adversidades la humildad nos ayuda a confiar en Jehová
+- 1 Pedro 2:21-23
+- 2 Timoteo 4:14
+- Jesus y Pablo tenían paz interior porque hacían feliz a Jehová
+- Jehová les daba esa paz interior
+- Filipenses 4:7
+- Lecciones:
+	- Contribuye a que disfrutemos del ministerio
+	- Que ayudemos a otros
+	- Que disfrutemos de paz interior
