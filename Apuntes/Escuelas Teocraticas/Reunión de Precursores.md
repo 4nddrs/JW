@@ -187,4 +187,5 @@
 		- Acá Jesús nos prometió que nos dará su paz
 		- Contamos con la aprobación de Jehová y Jesús 
 		- Cuando estamos en la predicación sabemos que contamos con la aprobación de Jehová y Jesús 
-
+- **“No estás enfrentando nada a que Jehová no te haya preparado”**
+- 
