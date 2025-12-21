@@ -80,5 +80,9 @@
 
 ## Mi yugo no es una carga
 1. Llevamos la carga con modestia
-	- Jesus predico 3 an
+	- Jesus predico 3 años 
+	- Jesús no intentó abarcar todo el territorio a fuerzas
+	- No debemos compararnos con los demás precursores
+	- Debemos hacer un horario de predicación 
+	- 
 2. Mantenemos un enfoque sencillo 
