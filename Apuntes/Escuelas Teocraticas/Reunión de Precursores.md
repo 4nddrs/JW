@@ -77,3 +77,8 @@
 	- Contribuye a que disfrutemos del ministerio
 	- Que ayudemos a otros
 	- Que disfrutemos de paz interior
+
+## Mi yugo no es una carga
+1. Llevamos la carga con modestia
+	- Jesus predico 3 an
+2. Mantenemos un enfoque sencillo 
