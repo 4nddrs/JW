@@ -84,5 +84,88 @@
 	- Jesús no intentó abarcar todo el territorio a fuerzas
 	- No debemos compararnos con los demás precursores
 	- Debemos hacer un horario de predicación 
-	- 
+	- Debemos sacar tiempo para la recreación 
 2. Mantenemos un enfoque sencillo 
+	- Debemos tener una vida sencilla para mantenernos enfocados en lo importante 
+	- Si dedicamos tiempo a lo que realmente importa seremos más felices 
+	- Si dedicamos tiempo a lo espiritual podremos disfrutar más del servicio a Jehová 
+	- Debemos tener el ojo sencillo de Jesús
+
+#### Elijan la carga que pesa poco
+- Mateo 11:29
+	- Hay que ponernos bajo el yugo de Jesús
+	- Eso es un alivio
+	- Jesús nos trata, nos ayuda y nos guía con bondad
+	- No estamos solos con esta responsabilidad
+- Jesús nos pide llevar esta carga con sabiduría en: 
+	- 1 Corintios 9:26
+		- Pablo se compara a un boxeador
+		- El quiere cumplir su objetivo 
+	- Cómo podríamos no dar golpes al aire?
+	- Pensemos en nuestro territorio y formas de ser eficaces 
+- No nos compliquemos en llegar a nuestro destino
+- Debemos enseñar con sencillez 
+- Si a una planta le ponemos mucha agua, se muere
+- Debemos hacer todo con medida
+
+#### Sientan alivio mi carga pesa poco
+- Hebreos 12:1
+- Que cargas debemos quitarnos?
+	1. No enfocarnos en elevar nuestro estilo de vida 
+		- 1 Timoteo 6:7,8
+		- Lección:  Estar contentos con lo básico en nuestra vida
+		- Ahorramos deudas innecesarias 
+	2. Las expectativas poco realistas 
+		- Cada vez que nos comparamos con alguien es como recoger basura de la calle
+		- No queremos tener esa carga innecesaria 
+		- Que debemos hacer?
+			- Galatas 6:4
+			- Es bueno compararse pero con uno mismo
+			- Lección: No nos exijamos más que lo que Jehová nos pide
+			- Jehová valora mucho nuestro servicio
+	3. El exceso de culpa
+		- Esa carga nos puede dejar aplastados
+		- Tenemos 4 ayudas:
+			1. La oración 
+			2. Llenar la mente con ideas positivas y espirituales 
+			3. Memorizar textos que hablen de las cualidades de Jehová
+			4. El encomio de miembros de la congregación y familia 
+		- Si tenemos cargas innecesarias pues debemos botarlas
+		- Salmo 55:22
+		- Leccion: Jehová desea y es el único que puede llevar esas cargas innecesarias 
+		- Debemos cumplir nuestras responsabilidades y echarle a Jehová las cargas innecesarias 
+		- Si lo hacemos podremos no solo correr la carrera sino ganarla como Jehová espera
+#### Encontremos alivio al echar las cargas
+- Hechos 20:35
+- No es casualidad que estemos tan felices
+- Somos felices porque damos a los demás
+- Pablo dijo: “Deben trabajar así de duro” 
+- Requiere esfuerzo
+- Mateo 11:29 dice: *encontrarán alivio*
+- Y en Mateo 11:30 dice que es un yugo fácil de llevar
+- Que hacen de este yugo algo agradable y livianos??
+	1. Tenemos los mejores superintendentes del mundo
+		- Tenemos a Jehová y Jesús
+		- Ellos nunca se olvidan de nuestras obras del pasado
+		- Ellos son bondadosos y misericordiosos 
+		- Jehová siente nuestro dolor y quiere ayudarnos
+		- Juan 13:15
+			- Tenemos a nuestros ancianos que reflejan ese amor que tienen Jehová y Jesús
+	2. Tenemos a los mejores compañeros 
+		- Nuestros compañeros son auténticos 
+		- Nuestros compañeros tienen muchos talentos, pero no lo presumen
+		- Ellos saben que esos talentos son de Jehová 
+		- Juan 15:13
+			- Nuestros amigos están dispuestos a dar su vida por nosotros 
+	3. Tenemos el mejor trabajo 
+		- Nuestro trabajo es enseñar la verdad
+		- Las verdades que tenemos la oportunidad de enseñar son un privilegio 
+- 2 Tesalonisenses 2:16, 17
+	- Aquí Pablo habla de una esperanza maravillosa
+	- Conseguiremos consuelo interno
+	- Los efectos de este consuelo nunca terminarán 
+- Que aprendimos:
+	- Compartamos las cargas con Jehová y Jesús 
+	- No nos compliquemos
+	- Quitemos las cargas innecesarias
+	- Encontrar alivio
