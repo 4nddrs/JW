@@ -2,7 +2,7 @@
 
 - Los caminos de Jehová se basan en el amor (1 Juan 4:8)
 - Esa es la gran diferencia.
-- Según Mal 3:18 tiene que haber una diferencia entre las personas que andan por el camino de Dios y quienes no lo hacen
+- Según Malaquias 3:18 tiene que haber una diferencia entre las personas que andan por el camino de Dios y quienes no lo hacen
 - Que es lo que caracteriza a los caminos de este mundo?
 	- Racismo
 	- Inmoralidad
