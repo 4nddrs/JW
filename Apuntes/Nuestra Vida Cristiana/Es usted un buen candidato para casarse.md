@@ -6,7 +6,7 @@
 - 1 Pedro 2:13 — Se somete por respeto a Jehová.
 ### No es egoísta, sino que muestra amor desinteresado.
 - Filipenses 2:3-5 — Imita la humildad y entrega de Cristo.
-- 1 Corintios 13:5 — El amor no busca beneficio propio
+- 1 Corintios 13:5 — El no busca beneficio propio
 ### Es sensato, equilibrado y razonable.
 - Proverbios 14:15 — Piensa antes de actuar con prudencia.
 - Tito 2:12 — Vive con autocontrol y buen juicio.
