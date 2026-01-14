@@ -25,13 +25,9 @@
 
 ## ¿Cómo disciplinó Jehová a Sebná y cuál fue el resultado?
 
-- Leamos ahora **Isaias 22:17-19:**
+- Leamos ahora **Isaias 22:19:**
 
->[!versiculo] Isaias 22:17-19
->“¡Mira! Jehová te tirará hacia abajo con violencia y te agarrará con fuerza."
->
->Sin falta te enrollará bien apretado, como una pelota, y te lanzará a una tierra espaciosa. Allí morirás y allí acabarán tus gloriosos carros, una vergüenza para la casa de tu amo. 
->
+>[!versiculo] Isaias 22:19
 >Y yo te quitaré de tu puesto y te echaré de tu cargo.
 
 - Jehová no ignoró la actitud de Sebná. Le quitó su cargo y se lo dio a Eliaquim. Fue una corrección firme y clara.
