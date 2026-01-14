@@ -119,5 +119,6 @@ Así que preguntémonos hoy:
 - ¿Seguiré sirviendo con alegría, pase lo que pase?
 
 Recordemos:  
-- **Si somos humildes y cambiamos nuestra actitud frente a una correcion, siempre contaremos con la aprobación y el gran amor de Jehová.**
+- Si somos humildes y cambiamos nuestra actitud frente a una correcion, siempre contaremos con la aprobación y el gran amor de Jehová
 - **No es ese el mayor honor y privilegio que podemos tener??**
+- **Claro que si, y queremos conservarlo para siempre**
