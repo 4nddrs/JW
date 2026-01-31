@@ -1,0 +1,37 @@
+- Filipenses 1:4, 5
+- Es interesante que Pablo utiliza la palabra contribución.
+- Significa que hicieron todo lo posible para hacer conocer las buenas noticias
+- Una de las cristianas que Pablo tenia en mente al escribir estas palabras fue Lidia
+	- Fue alguien hospitalaria y que siempre demostró amor a sus hermanos.
+- Jehová sabe lo que necesitamos y si lo ponemos a prueba nos lo demostrara
+- Malaquias 3:10
+- Jehová nos da pleno respaldo
+- Filipenses 2:19, 20
+	- Había una distancia de 1000 km (40 días a pie) entre Roma y Filipos.
+	- Timoteo estaba dispuesto a hacer ese viaje por el gran amor que le tenia a la congregación.
+- Romanos 10:13
+	- Este grupo iría creciendo poco a poco
+- Romanos 10: 14, 15 (a)
+	- Todo esto lo hacen los precursores
+- Romanos 10:15 (b)
+	- Para Jehová quienes se esfuerzan por declarar las buenas noticias son muy valiosos
+#### Como podemos apoyarnos unos a otros en la congregación?
+- Filipenses 1: 3, 7
+	- Pablo estaba en prisión y Pablo recibió una visita para anirmarlo
+- Quien era este Hermano?
+	- Filipenses 2: 25
+	- La congregación envió a Epafrodito
+- Nosotros queremos hacer lo mismo
+- Queremos animarnos unos a otros en la congregación.
+- Preocupémonos sinceramente por los hermanos mayores y enfermos.
+
+#### Necesidades de la congregación
+- Mateo 28: 19, 20
+- Nuestro objetivo en la predicación es enseñar a las personas
+- Debemos organizarnos y tener un horario
+- Anotemos bien las direcciones de las revisitas
+- Filipenses 4: 6
+	- Roguémosle en oración a Jehová en cualquier situación
+- Filipenses 4: 7
+	- Jehová promete protegernos
+- Este es un privilegio que tenemos y queremos llevarlo a cabo con gozo.
