@@ -5,7 +5,7 @@ Esto nos hace pensar en como nosotros reaccionamos cuando se nos corrige a trav�
 - hacemos oídos sordos?
 - O es cuando mas prestamos atención?  
 
-Nuestra reacción va a determinar que tan humildes somos.
+Nuestra reacción va a determinar que tan humildes somos..
 
 ##### Versículo 20: “Jehová te dará angustia como si fuera pan y opresión como si fuera agua”
 
