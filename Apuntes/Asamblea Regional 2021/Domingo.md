@@ -113,12 +113,12 @@
 -  La Biblia, El libro de la creación.
 - Hebreos 3:4. "Donde hay diseño, siempre hay un diseñador"
 - Aunque la Biblia fue escrita hace mucho tiempo, nunca necesito un cambió.
--  ❌ La experiencia se obtiene a base de golpes.
-- ✅ Jehová hace sabio al inexperto.
+	-  ❌ La experiencia se obtiene a base de golpes.
+	- ✅ Jehová hace sabio al inexperto.
 - Hay que tener fe en el amor de Dios.
 - Salmo 27=Rollo de Daniel.
-- ✅La fe nos fortalece. 
-- ❌Las dudas nos debilitan.
+	- ✅La fe nos fortalece. 
+	- ❌Las dudas nos debilitan.
 - Las dudas pueden acabar con nuestra fe. 
 - La fe nos protege de las dudas
 - No dejemos que las ideas apóstatas entren en nuestra mente.
@@ -129,7 +129,6 @@
 	- Daniel era constante en su adoración.
 - No dice que podrán ser, dice que seremos perseguidos por adorar a Jehová
 - Confiemos en Jehová. Él es más grande que nuestros enemigos.
-	
 	- "No tengas miedo hombre muy valioso".
 	- "Si tienen fe...pasará".
     
