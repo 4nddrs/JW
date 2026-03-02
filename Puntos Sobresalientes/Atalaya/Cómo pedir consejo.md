@@ -1,5 +1,4 @@
 [***Atalaya, julio de 2025 (párrafo 13)***](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=2025480&par=13)
-
 En el texto de [1 Samuel 25:3](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=09025032&pub=nwtsty) notamos que David vio el consejo de Abigaíl como un consejo de parte de Jehová, por esa razón el pudo aceptar el consejo sin importar quien se lo diera. Nosotros debemos imitar ese mismo punto de vista
 
 
