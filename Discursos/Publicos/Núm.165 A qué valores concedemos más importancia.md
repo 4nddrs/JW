@@ -51,6 +51,10 @@
 - **Ilustración:** El dinero es como el agua salada para un náufrago: cuanta más bebe para calmar la sed, más sed le da.
     
 - Leamos **Proverbios 23:4, 5**.
+>[!versiculo] Proverbios 23:4, 5
+>No te desvivas consiguiendo riquezas. Detente y muestra que tienes entendimiento. Cuando pones los ojos en ellas, desaparecen, porque sin falta les saldrán alas como las del águila y se irán volando por el cielo
+
+
 - Este texto enseña que las riquezas son **engañosas e inestables**, recordándonos que dedicar toda nuestra energía a acumularlas es una falta de sabiduría
 - Pues pueden desaparecer tan rápido como un águila que emprende el vuelo.
     
@@ -67,6 +71,115 @@
 - Muchas personas quieren llegar a ser alguien en este mundo, quieren ser reconocidos y famosos.
 - Por esa razon muchos buscan educación superior no para aprender, o poder conseguir un trabajo
 - Sino que lo hacen para subir de status, y creerse mejor que los demás.
-- Quieren cultivar habilidades no para ayudar a lo demás, sino para ser "alguien importante", para sentirse superiores.
+- Quieren cultivar habilidades no para ayudar a lo demás, sino para ser "alguien importante", para sentirse superiores al resto.
 --- 
-- 
+- Pero que opinara Jehova al respecto?
+- El nos lo hace saber en **1 Corintios 3:18, 19:**
+>[!versiculo] 1 Corintios 3:18, 19
+>Que nadie se engañe: si alguno de ustedes piensa que es sabio en este sistema, que se haga ignorante para que llegue a ser sabio. 
+>
+>Porque para Dios la sabiduría de este mundo es absurda, pues está escrito: “Él atrapa a los sabios en su propia astucia
+
+- Notaron? En este texto Jehova prácticamente nos dice: 
+	- Despierten! No usen ese filtro, esa forma de pensar!  
+	- La sabiduría de este mundo es absurda!
+	- E invertir TODO nuestro tiempo y esfuerzo para conseguirla es en vano, NO LO HAGAN!
+- Queridos hermanos y hermanas, Jehova sabe lo que dice, el vio a muchas personas que persiguieron esta meta
+- Y aunque muchos la alcanzaron al final no ganaron nada que valga la pena.
+- Como dice **Eclesiastés 2:16**:
+	- al sabio del mundo se le olvida igual que al tonto. 
+- La fama no puede comprar ni un minuto más de vida. 
+- Es como un aplauso en un estadio vacío: suena fuerte un momento, y luego solo queda el silencio.
+
+### La Obsesión por el Entretenimiento
+
+- Vivimos en un mundo donde tenemos muchas actividades para entretenernos:
+- Puede que pensemos en: 
+	- cual sera nuestro proximo viaje
+	- cual sera el siguiente videojuego que vamos a comprar
+	- ya salieron a la venta las entradas para ir al cine o algún concierto
+	- ya reservaron la cancha para ir jugar?
+
+- Estas actividades no son malas
+	- Un viaje es algo muy divertido
+	- Ver una buena pelicula nos hace pasar un buen rato
+	- Y el deporte nos ayuda a tener una buena salud
+
+- El problema es cuando estas actividades y el planearlas ocupan toda nuestra mente y siempre estamos pensando en eso.
+- Puede que solo vayamos de vacaciones una vez al año, pero si TODO EL TIEMPO, estamos pensando en ellas, es un problema.
+- Ya que le estamos dando mas importancia de lo que deberíamos.
+
+- Esa mentalidad puede llevarnos a desarrollar amor a los placeres
+- Es como el azúcar: da energía un momento, pero luego te deja más cansado y vacío que antes.
+- Jehova nos advirtió de este peligro en **Proverbios 21:17:**
+
+>[!versiculo] Proverbios 21:17
+>El que ama la diversión acabará en la pobreza
+
+- Y es interesante que esta pobreza no solo es material, sino también espiritual.
+- Queridos hermanos y hermanas, quedémonos con este punto:
+	- El entretenimiento es un excelente _descanso_, pero un pésimo _destino_
+	- No queremos que sea nuestra meta
+---
+- Si las riquezas vuelan, la fama se olvida y el placer se evapora... 
+- **¿qué es lo que realmente permanece?**
+- **Cual es una buena meta que vale la pena esforzarse por alcanzar?**
+- Pues vamos a descubrirlo juntos
+
+## La superioridad de los principios bíblicos
+
+- Hay una verdad innegable: **sin vida, nada más tiene valor.**
+- Puede que tengamos una cuenta bancaria llena de dinero, pero si estamos bajo tierra en un cementerio, ese dinero no vale nada. Ya que no podemos gastarlo.
+- Entonces, lo que realmente tiene valor es lo que nos conecta con la Fuente de la vida.
+- Hubo un rey que sabia esto y lo puso por escrito, era David, leamos **Salmo 63:3:**
+
+>[!versiculo] Salmo 63:3
+> Tu amor leal es mejor que la vida; por eso mis propios labios te darán gloria.
+
+- Por que David escribió que el amor leal de Jehova, es mejor que la vida?
+- Pensemos en esta ilustración: 
+	- Imaginen un aparato electrónico ultimo modelo. Puede tener muchas funciones, pero si no está conectado a la energía o si su batería muere, es solo un trozo de plástico. 
+	- Nosotros somos iguales; nuestra "energía" y propósito real vienen de estar conectados con Jehová. De tener una amistad con el.  
+- Si somos sus amigos Jehova no solo nos promete una vida eterna, nos promete una vida con sentido, ahora y el futuro.
+
+- Y como podemos llegar a ser amigos de Jehova? 
+- Pues el uso a uno de sus amigos para darnos esa información, leamos lo que escribió Juan, en Juan 17:3, ahi dice:
+
+>[!versiculo] Juan 17:3
+>Esto significa vida eterna: que lleguen a conocerte a ti, el único Dios verdadero, y a quien tú enviaste, Jesucristo.
+
+- Juan lo dejo muy claro, si queremos ser amigos de Jehova necesitamos conocerlo.
+- Esto implica saber:
+	- cuales son sus normas, su propósito
+	- para así adquirir sabiduría y entendimiento.
+- Y esta sabiduría de Jehova es muy diferente a la sabiduría de este mundo, veamos por que
+---
+
+- El mundo nos enseña a "agarrar" y "acumular".
+- La Biblia nos enseña a "soltar" y "dar".
+- Es interesante...
+	- Mientras el mundo mide el éxito por lo que tienes en el garaje
+	- Dios lo mide por lo que tienes en el corazón.
+- Y Jehova quería que tengamos esta idea bien solida, por eso inspiro a Pablo para que lo deje por escrito, leamos **1 Timoteo 6:17:**
+
+>[!versiculo] 1 Timoteo 6:17-19
+>Dales estas instrucciones a los que son ricos en este sistema: que no se crean superiores y que no pongan su esperanza en las riquezas inseguras, sino en Dios, que nos suministra abundantemente todo lo que disfrutamos.
+
+-  Notaron? Jehová nos manda a no ser arrogantes ni poner nuestra esperanza en riquezas inestables
+- Y a cambio que debemos hacer? Sigamos leyendo...
+
+>[!versiculo] 1 Timoteo 6:18
+>Diles que hagan el bien, que sean ricos en buenas obras, que sean generosos y que estén dispuestos a compartir
+
+- Si... Jehova no quiere que seamos egoístas y pensemos en nosotros TODO el tiempo.
+- Sino, pensar en:
+	- Como puedo ayudar a los demás? 
+	- Hay algún hermano o hermana que necesite mi ayuda?
+	- Puedo dar de mi tiempo, energías, y cosas valiosas para apoyar el Reino de Dios?
+- Pues Jehova espera que nos hagamos estas preguntas, y obremos de acuerdo a nuestras circunstancias personales
+- Recuerde Jehová nunca nos va exigir algo que no podamos cumplir
+- Y cual sera la recompensa si hacemos esto? Sigamos leyendo...
+
+>[!versiculo] 1 Timoteo 6:19
+>y así ellos se conseguirán un tesoro, unos buenos cimientos para el futuro, para que logren aferrarse a la vida que realmente es vida.
+
