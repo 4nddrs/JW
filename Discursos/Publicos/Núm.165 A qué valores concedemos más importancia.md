@@ -50,7 +50,8 @@
 
 - **Ilustración:** El dinero es como el agua salada para un náufrago: cuanta más bebe para calmar la sed, más sed le da.
     
-- Leamos **Proverbios 23:4, 5**.
+- Leamos **Proverbios 23:4, 5**
+
 >[!versiculo] Proverbios 23:4, 5
 >No te desvivas consiguiendo riquezas. Detente y muestra que tienes entendimiento. Cuando pones los ojos en ellas, desaparecen, porque sin falta les saldrán alas como las del águila y se irán volando por el cielo
 
@@ -183,3 +184,46 @@
 >[!versiculo] 1 Timoteo 6:19
 >y así ellos se conseguirán un tesoro, unos buenos cimientos para el futuro, para que logren aferrarse a la vida que realmente es vida.
 
+- Si usted toma ahora las decisiones correctas, la vida eterna esta a su alcance.
+- Ahora bien, Pablo también hablo de un tesoro, este tesoro se almacena en un banco que nunca va quebrar, este banco existió desde hace mucho tiempo
+- A que nos estamos refiriendo?
+---
+- Bueno, para entender esta idea:
+	- Hablemos del **espejismo del reconocimiento** que mencionamos antes.
+- Sin duda todos queremos ganarnos una **buena reputación**, de hecho ganársela conlleva mucho tiempo y esfuerzo.
+- Uno debe ser muy paciente para conseguirla.
+- ¿Quién se acuerda del hombre más rico del mundo de hace 200 años?
+	- Casi nadie, y si lo recordamos probablemente solo sepamos su nombre y algunos detalles de su vida.
+- Pero Jehova tiene una memoria perfecta para sus siervos leales. 
+- El recuerda cada detalle de todos sus siervos
+- Por eso preguntémonos: 
+	- Me estoy ganando una buena reputación SOLO ante las personas?
+	- O estoy construyendo una vida que Jehova recuerde y le tenga mucho aprecio?
+- No lo olvide, los seres humanos olvidan rápido, pero Jehova es diferente
+- Leamos **Malaquías 3:16**
+
+>[!versiculo] Malaquías 3:16
+> En ese tiempo, los que temían a Jehová se pusieron a hablar entre ellos, cada uno con su compañero, y Jehová siguió prestando atención y escuchando. Y ante él se escribió un libro para recordar a los que temen a Jehová y a los que meditan en su nombre.
+
+- Su nombre esta en ese libro?
+	- Aquí leemos que este libro es para recordar a los que tienen una buena reputación ante Jehova.
+	- Queremos estar en este libro, esa es NUESTRA META
+- No gastamos todo nuestro tiempo y energías para:
+	- ser famosos
+	- ser millonarios
+	- divertirnos sin importarnos nada mas.
+- Esas cosas no tienen un valor real, es solo un filtro
+
+- Nuestra meta es estar en este libro, que Jehova atesore tu nombre.
+	- Jehova no solo va a recordar como te llamas, el recordara cada detalle de vos
+	- Tus gustos, tu personalidad, todas las veces que le fuiste leal.
+	- Y sabes que es lo mejor, que lo va a recordar con cariño.
+	- Ya que serás su amigo intimo.
+	- Y si pierdes la vida, Jehova te la devolverá, para que vivas para siempre.
+
+- Quedémonos con esa idea: 
+- El placer del mundo es como un fuego artificial: brilla un segundo y pero luego solo deja humo. 
+- El gozo de servir a Jehova es como la luz del sol: brilla constante y nos da calor todos los días.
+---
+- Y como lo logramos? Que debemos hacer?
+- 
