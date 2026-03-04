@@ -225,5 +225,58 @@
 - El placer del mundo es como un fuego artificial: brilla un segundo y pero luego solo deja humo. 
 - El gozo de servir a Jehova es como la luz del sol: brilla constante y nos da calor todos los días.
 ---
-- Y como lo logramos? Que debemos hacer?
-- 
+- Muy bien, ya tenemos identificada cual es nuestra meta
+- Pero eso no es suficiente, ahora hay que trabajar en ella
+## Centrémonos en las cosas valiosas que reportan recompensas eternas.
+
+- Es fundamental que nuestra perspectiva de las cosas sea espiritual en vez de física
+- El apóstol Pablo menciono que el hombre que solo se centra en las cosas materiales, no ve las cosas como las ve Jehova. 
+- Nosotros queremos ser diferentes, queremos ver las cosas como Jehova las ve
+- Y si hacemos esto, nos sera mas fácil obedecer a Jehova:
+- Ya que donde el mundo ve "pérdida de tiempo" 
+	- El hecho de ir a las reuniones, predicar,  ayudar a los demás
+	- Una persona espiritual lo ve como una **"inversión de vida"**. 
+		- Que traerá beneficios ahora y en el futuro.
+- Eso nos lleva al siguiente punto
+---
+- Debemos ser realistas. Todo lo que el mundo ofrece tiene una "fecha de vencimiento" escrita en letras grandes.
+- La pregunta es? Puede ver esas letras? 
+- O el filtro de su camara esta ocultando esa realidad?
+- Jesus lo dejo muy claro cuando nos dijo que: 
+	- El mundo y sus deseos están pasando, pero el que hace la voluntad de Dios **permanece para siempre**.
+- Pronto, las cuentas bancarias, los títulos académicos y la fama de este sistema no valdrán nada. 
+- Invertir **TODO** nuestro esfuerzo en este mundo es como decorar la habitación de un hotel donde solo te quedarás una noche. 
+- ¿No sería mejor invertir ese esfuerzo y tiempo en nuestro hogar eterno?
+	- Claro que si
+- Y este hogar eterno sera muy acogedor, de hecho Jehova nos lo esta preparando con mucho cariño, porque quiere que disfrutemos de el.
+---
+- Pero sabe algo... no tiene que esperar al nuevo mundo para ver los beneficios que conlleva tener el punto de vista de Jehova.
+- Los valores bíblicos nos dan recompensas "en efectivo" hoy mismo.
+
+	- **Tranquilidad mental:** Al no vivir esclavizados por el materialismo.
+    - **Mejores relaciones:** Al sustituir la competencia por el amor cristiano.
+	- **Propósito real:** Saber que somos colaboradores de Jehova, y saber que el tiene algo preparado para nosotros en un futuro muy cercano.
+
+## Conclusion
+
+- Hoy hemos hablado de filtros, y de la importancia de ver las cosas como las ve Jehova.
+- Pero es un hecho que Satanás tratará de volver a ponernos el filtro de las riquezas, el estatus y el placer vacío.
+- Ya sea por redes sociales, compañeros de trabajo o de estudios, o por otras vias.
+- Pero ahora sabemos la verdad: 
+	- Esos filtros solo embellecen un camino que termina en la nada.
+- Y si eres joven...
+- Solo tu sabes que harás con esa vida tan valiosa que Jehova te ha dado.
+	- Pero hemos aprendido que a menos que la uses para servir a Jehova, te sentirás vació.
+	- Así que úsala para servirle, y siempre serás feliz.
+- Recuerda definir bien tus valores, ya que esos valores van a definir tus prioridades, y van a definir tus metas.
+- Leamos un ultimo texto, Salmo 16:11:
+- Esto es lo que dirán las personas que alcanzaron la meta de ser amigos de Jehova.
+
+>[!versiculo] Salmo 16:11:
+> Me das a conocer la senda de la vida. En tu presencia hay gran alegría; a tu derecha habrá felicidad para siempre.
+
+- Si, muchas personas van a gozar de una vida eterna y serán muy felices. 
+- Y dirán estas palabras que acabamos de leer. Esto es un hecho
+- La pregunta es... estas palabras saldrán de tu boca?
+	- Jehova espera que si, porque te quiere mucho
+	- Pero todo depende vos y a que valores les darás mas importancia.
