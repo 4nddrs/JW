@@ -4,11 +4,11 @@
     "type": "split",
     "children": [
       {
-        "id": "20c362a0c1145a7c",
+        "id": "8d29a3205ac672a0",
         "type": "tabs",
         "children": [
           {
-            "id": "73ff79f27d654cb4",
+            "id": "71d62f794ecb6d6d",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -180,10 +180,15 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "73ff79f27d654cb4",
+  "active": "71d62f794ecb6d6d",
   "lastOpenFiles": [
     "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
+    "Imagenes/Disc.165/imagen2.png",
+    "Imagenes/Disc.165/imagen1.png",
+    "Imagenes/Disc.165",
+    "Imagenes/Untitled.md",
     "Discursos/Publicos/Núm.165 A qué valores concedemos más importancia.md",
+    "Perlas/Isaias/Capitulo 41.md",
     "Puntos Sobresalientes/Atalaya/Como planear una boda que honre a Jehová.md",
     "Discursos/Tesoros de la Biblia/Qué aprendemos de lo que le pasó a Sebná.md",
     "Puntos Sobresalientes/Ejemplos Bíblicos/Jonas.md",
@@ -205,9 +210,6 @@
     "Perlas/Salmos/Capítulo 39.md",
     "Perlas/Isaias/Capítulo 38.md",
     "Perlas/Isaias/Capítulo 36.md",
-    "Perlas/Isaias/Capítulo 34.md",
-    "Perlas/Isaias/Capítulo 32.md",
-    "Perlas/Isaias/Capítulo 31.md",
     "Apuntes/Visita de Zona 2025",
     "Apuntes/Reunión Anual de Precursores",
     "Perlas/Salmos",
@@ -217,7 +219,6 @@
     "Apuntes/Nuestra Vida Cristiana",
     "Apuntes/Discursos Publicos",
     "Apuntes/Necesidades Espirituales",
-    "Apuntes/Kahoot",
     "Imagenes/Disc.50/num50-1.png",
     "Imagenes/Disc.50/num50-5.png",
     "Imagenes/Disc.50/num50-4.png",

@@ -4,7 +4,10 @@
 
 - ¿Se han fijado en cómo funcionan hoy las redes sociales o las cámaras de nuestros teléfonos? 
 - Casi todos tienen "filtros". Con un solo clic, podemos hacer que un paisaje nublado parezca un día radiante, o que una cara cansada se vea perfecta.
-- Pero hay un detalle: **el filtro no cambia la realidad del objeto, solo cambia la forma en que tú lo ves.**
+
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen1.png" width="400"> </div>
+
+- Pero hay un detalle: **el filtro no cambia la realidad, solo cambia la forma en que tú y los demás lo ven.**
 
 - En la vida real, todos tenemos un "filtro mental". 
 - Ese filtro son **nuestros valores**. 
@@ -12,6 +15,9 @@
 - El peligro es que el mundo nos ofrece varios "filtros" que hacen que:
 	- Las cosas temporales parezcan eternas
 	- Y que las metas vacías parezcan llenas de significado. 
+
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen2.png" width="400"> </div>
+
 - Si no tenemos cuidado, podemos pasar toda la vida persiguiendo algo que se ve brillante a través de nuestro filtro, pero que en realidad no tiene valor.
 
 ---
@@ -33,7 +39,7 @@
 	- _"Asegúrense de las cosas más importantes"_. 
 - No dice "asegúrense de las cosas más urgentes" o "de las que todos buscan", sino de las que tienen **valor real**.
 ---
-- Y hacer esto es muy  importante, y debemos hacerlo lo mas antes posible.
+- Y hacer esto es muy importante, y debemos hacerlo lo mas antes posible.
 - Imagínese esforzarse toda la vida por alcanzar una meta, y cuando lo logramos, descubrimos que esta vacía.
 - Es como subir una escalera con mucho esfuerzo para darte cuenta, al llegar arriba de que era la equivocada, la escalera correcta era la de otro edificio. 
 - No queremos que nos pase eso, y Jehova tampoco.
@@ -89,6 +95,7 @@
 - Y aunque muchos la alcanzaron al final no ganaron nada que valga la pena.
 - Como dice **Eclesiastés 2:16**:
 	- al sabio del mundo se le olvida igual que al tonto. 
+
 - La fama no puede comprar ni un minuto más de vida. 
 - Es como un aplauso en un estadio vacío: suena fuerte un momento, y luego solo queda el silencio.
 
@@ -139,7 +146,7 @@
 
 - Por que David escribió que el amor leal de Jehova, es mejor que la vida?
 - Pensemos en esta ilustración: 
-	- Imaginen un aparato electrónico ultimo modelo. Puede tener muchas funciones, pero si no está conectado a la energía o si su batería muere, es solo un trozo de plástico. 
+	- Imaginen un aparato electrónico ultimo modelo. Puede tener muchas funciones, pero si no está conectado a la energía o si su batería muere, es solo un trozo de metal. 
 	- Nosotros somos iguales; nuestra "energía" y propósito real vienen de estar conectados con Jehová. De tener una amistad con el.  
 - Si somos sus amigos Jehova no solo nos promete una vida eterna, nos promete una vida con sentido, ahora y el futuro.
 
@@ -163,7 +170,7 @@
 	- Dios lo mide por lo que tienes en el corazón.
 - Y Jehova quería que tengamos esta idea bien solida, por eso inspiro a Pablo para que lo deje por escrito, leamos **1 Timoteo 6:17:**
 
->[!versiculo] 1 Timoteo 6:17-19
+>[!versiculo] 1 Timoteo 6:17
 >Dales estas instrucciones a los que son ricos en este sistema: que no se crean superiores y que no pongan su esperanza en las riquezas inseguras, sino en Dios, que nos suministra abundantemente todo lo que disfrutamos.
 
 -  Notaron? Jehová nos manda a no ser arrogantes ni poner nuestra esperanza en riquezas inestables
@@ -233,6 +240,7 @@
 - El apóstol Pablo menciono que el hombre que solo se centra en las cosas materiales, no ve las cosas como las ve Jehova. 
 - Nosotros queremos ser diferentes, queremos ver las cosas como Jehova las ve
 - Y si hacemos esto, nos sera mas fácil obedecer a Jehova:
+
 - Ya que donde el mundo ve "pérdida de tiempo" 
 	- El hecho de ir a las reuniones, predicar,  ayudar a los demás
 	- Una persona espiritual lo ve como una **"inversión de vida"**. 
