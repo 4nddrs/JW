@@ -42,6 +42,9 @@
 - Y hacer esto es muy importante, y debemos hacerlo lo mas antes posible.
 - Imagínese esforzarse toda la vida por alcanzar una meta, y cuando lo logramos, descubrimos que esta vacía.
 - Es como subir una escalera con mucho esfuerzo para darte cuenta, al llegar arriba de que era la equivocada, la escalera correcta era la de otro edificio. 
+
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen3.png" width="400"> </div>
+
 - No queremos que nos pase eso, y Jehova tampoco.
 - Por eso, para no caer en esa trampa, analicemos ahora qué filtros nos está vendiendo el mundo hoy y por qué suelen ser un engaño.
 
@@ -88,10 +91,10 @@
 >Porque para Dios la sabiduría de este mundo es absurda, pues está escrito: “Él atrapa a los sabios en su propia astucia
 
 - Notaron? En este texto Jehova prácticamente nos dice: 
-	- Despierten! No usen ese filtro, esa forma de pensar!  
+	- Despierten! No usen ese filtro, esa forma de pensar esta mal!  
 	- La sabiduría de este mundo es absurda!
 	- E invertir TODO nuestro tiempo y esfuerzo para conseguirla es en vano, NO LO HAGAN!
-- Queridos hermanos y hermanas, Jehova sabe lo que dice, el vio a muchas personas que persiguieron esta meta
+- Queridos hermanos y hermanas, Jehova sabe lo que dice, el vio a muchas personas que persiguieron esta meta a lo largo de la historia.
 - Y aunque muchos la alcanzaron al final no ganaron nada que valga la pena.
 - Como dice **Eclesiastés 2:16**:
 	- al sabio del mundo se le olvida igual que al tonto. 
@@ -230,7 +233,11 @@
 
 - Quedémonos con esa idea: 
 - El placer del mundo es como un fuego artificial: brilla un segundo y pero luego solo deja humo. 
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen4.png" width="400"> </div>
+
+
 - El gozo de servir a Jehova es como la luz del sol: brilla constante y nos da calor todos los días.
+<div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen5.png" width="400"> </div>
 ---
 - Muy bien, ya tenemos identificada cual es nuestra meta
 - Pero eso no es suficiente, ahora hay que trabajar en ella
