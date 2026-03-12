@@ -72,7 +72,7 @@
 - Pues pueden desaparecer tan rápido como un águila que emprende el vuelo.
     
 - **Analicemos el ejemplo que puso Jesús para entender este punto:** 
-- En **Lucas 12:15-21**, Jesús habló de un hombre rico que tenia graneros para guardar su riqueza
+- En una ocasión, Jesús habló de un hombre rico que tenia graneros para guardar su riqueza
 - Pero su manera de ver las cosas era la equivocada, decidió construir graneros más grandes porque quería mas.
 - Pero el no sabia que iba a morir esa misma noche. 
 - Su error no fue ser trabajador, sino creer que su vida dependía de sus bienes. 
