@@ -11,12 +11,14 @@
             "id": "71d62f794ecb6d6d",
             "type": "leaf",
             "state": {
-              "type": "image",
+              "type": "markdown",
               "state": {
-                "file": "Imagenes/Disc.165/imagen5.png"
+                "file": "Discursos/Publicos/Núm.165 A qué valores concedemos más importancia.md",
+                "mode": "source",
+                "source": false
               },
-              "icon": "lucide-image",
-              "title": "imagen5"
+              "icon": "lucide-file",
+              "title": "Núm.165 A qué valores concedemos más importancia"
             }
           }
         ]
@@ -180,12 +182,12 @@
   },
   "active": "71d62f794ecb6d6d",
   "lastOpenFiles": [
+    "Imagenes/Disc.165/imagen5.png",
     "Imagenes/Disc.165/imagen4.png",
     "Imagenes/Disc.165/imagen3.png",
     "Imagenes/Disc.165/imagen2.png",
     "Imagenes/Disc.165/imagen1.png",
     "Discursos/Publicos/Núm.165 A qué valores concedemos más importancia.md",
-    "Imagenes/Disc.165/imagen5.png",
     "Imagenes/Disc.165/imagen3 1.png",
     "Discursos/Publicos/Num. 50 Como tomar buenas decisiones.md",
     "Imagenes/Disc.165",

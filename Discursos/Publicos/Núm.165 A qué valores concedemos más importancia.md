@@ -22,7 +22,7 @@
 
 ---
 - Es normal que queramos que nuestra vida "valga la pena". 
-- Jehova nos hizo así, tal como dice **Eclesiastés 2:24a**
+- Jehova nos hizo así, en la Biblia dice que:
 	- El ser humano busca satisfacción en su duro trabajo. 
 	
 - No fuimos creados para ser robots que solo cumplen tareas; fuimos diseñados para sentir el placer del logro, para tener metas que nos den una razón para levantarnos cada mañana.
@@ -36,8 +36,11 @@
 - Como se habrá dado cuenta, el problema es que, si el filtro está distorsionado, nos pondremos metas equivocadas. 
 
 - Por eso, el apóstol Pablo nos da un consejo de supervivencia en **Filipenses 1:10**: 
-	- _"Asegúrense de las cosas más importantes"_. 
-- No dice "asegúrense de las cosas más urgentes" o "de las que todos buscan", sino de las que tienen **valor real**.
+
+>[!versiculo] **Filipenses 1:10**:
+>Asegúrense de las cosas más importantes
+
+- No dice "asegúrense de las cosas que les parezcan mas urgentes" o "de las que todos buscan", sino de las que tienen **valor real**.
 ---
 - Y hacer esto es muy importante, y debemos hacerlo lo mas antes posible.
 - Imagínese esforzarse toda la vida por alcanzar una meta, y cuando lo logramos, descubrimos que esta vacía.
@@ -85,6 +88,7 @@
 --- 
 - Pero que opinara Jehova al respecto?
 - El nos lo hace saber en **1 Corintios 3:18, 19:**
+
 >[!versiculo] 1 Corintios 3:18, 19
 >Que nadie se engañe: si alguno de ustedes piensa que es sabio en este sistema, que se haga ignorante para que llegue a ser sabio. 
 >
