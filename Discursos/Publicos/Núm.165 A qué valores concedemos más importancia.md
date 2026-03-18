@@ -202,10 +202,10 @@
 - Ahora bien, Pablo también hablo de un tesoro, este tesoro se almacena en un banco que nunca va quebrar, este banco existió desde hace mucho tiempo
 - A que nos estamos refiriendo?
 ---
-- Bueno, para entender esta idea:
-	- Hablemos del **espejismo del reconocimiento** que mencionamos antes.
-- Sin duda todos queremos ganarnos una **buena reputación**, de hecho ganársela conlleva mucho tiempo y esfuerzo.
+- Sin duda todos queremos ganarnos una **buena reputación**, es algo muy valioso al igual que un tesoro. 
+- De hecho ganársela conlleva mucho tiempo y esfuerzo.
 - Uno debe ser muy paciente para conseguirla.
+
 - ¿Quién se acuerda del hombre más rico del mundo de hace 200 años?
 	- Casi nadie, y si lo recordamos probablemente solo sepamos su nombre y algunos detalles de su vida.
 - Pero Jehova tiene una memoria perfecta para sus siervos leales. 
