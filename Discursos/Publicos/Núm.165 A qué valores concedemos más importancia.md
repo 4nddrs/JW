@@ -2,7 +2,7 @@
 
 ## La mayoría de las personas busca valores que den sentido a su vida
 
-- ¿Se han fijado en cómo funcionan hoy las redes sociales o las cámaras de nuestros teléfonos? 
+- ¿Se han fijado en cómo funcionan hoy las redes sociales o las aplicaciones de fotos y videos? 
 - Casi todos tienen "filtros". Con un solo clic, podemos hacer que un paisaje nublado parezca un día radiante, o que una cara cansada se vea perfecta.
 
 <div style="text-align: center;"> <img src="../../Imagenes/Disc.165/imagen1.png" width="400"> </div>
