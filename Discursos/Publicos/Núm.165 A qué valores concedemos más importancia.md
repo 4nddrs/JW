@@ -82,7 +82,7 @@
 ### La Trampa de la Fama y la Prominencia
 
 - Muchas personas quieren llegar a ser alguien en este mundo, quieren ser reconocidos y famosos.
-- Por esa razon muchos buscan educación superior no para aprender, o poder conseguir un trabajo
+- Por esa razon muchos buscan educación complementaria no para aprender, o poder conseguir un trabajo
 - Sino que lo hacen para subir de status, y creerse mejor que los demás.
 - Quieren cultivar habilidades no para ayudar a lo demás, sino para ser "alguien importante", para sentirse superiores al resto.
 --- 
