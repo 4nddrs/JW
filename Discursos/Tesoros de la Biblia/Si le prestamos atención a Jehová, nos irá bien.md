@@ -35,7 +35,8 @@
 
 ## El regalo de poder elegir (3 min.)
 
-- A diferencia de los animales, que actúan principalmente por instinto, nosotros fuimos creados a imagen de Dios. 
+- Algo especial que tenemos los seres humans es de que... 
+	- A diferencia de los animales, que actúan principalmente por instinto, nosotros fuimos creados a imagen de Dios. 
 - Esto significa que tenemos algo sagrado: **libre albedrío**.
 
 - Jehová no nos obliga a obedecerle. 
@@ -84,6 +85,7 @@
 - Prestar atención a nuestro Padre no es una carga, es la mejor inversión que podemos hacer. 
 - Por eso, siempre miremos la creación o abramos nuestra Biblia con un objetivo: 
 	- La de escuchar la voz de nuestro Padre. 
-	- Si lo hacemos, nuestra paz será inagotable como un río y nuestra estabilidad será tan firme como las olas del mar.
+	- Si lo hacemos, nuestra paz será inagotable como un río y nuestra estabilidad será tan firme y constante como las olas del mar.
 
-- Porque, sin ninguna duda, **si le prestamos atención a Jehová, nos irá bien.**
+- Porque, sin ninguna duda, **si le prestamos atención a Jehová**
+- Nos irá bien **ahora**, nos irá bien **mañana** y nos irá bien **para siempre**.
