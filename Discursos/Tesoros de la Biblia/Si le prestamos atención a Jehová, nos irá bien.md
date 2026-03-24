@@ -65,7 +65,7 @@
 1. **Tu paz llegaría a ser igual que un río**
 	- Un río no se detiene; es sereno, abundante y constante. 
 	- La paz que da el mundo es temporal, pero la que da Jehová...
-		- que incluye bienestar, salud espiritual y una tranquilidad real
+		- Incluye bienestar, salud espiritual y una tranquilidad real
 	- Fluye incluso cuando enfrentamos problemas. 
 	- Es una paz que nos mantiene “sanos y salvos”. 
 
@@ -77,7 +77,27 @@
 		- Nuestro modo de vivir de acuerdo con lo que es correcto puede ser **constante y firme**. 
 		- No es algo que hacemos hoy y mañana no; es algo constante que Jehová valora profundamente.
 
-- Si nos esforzamos por ser fieles, tenemos la garantía de que Jehová, nunca permitirá que fracasemos.
+- Pero, le hago una pregunta:
+	- Es sencillo en este mundo escuchar y obedecer a Jehová?
+- Pues la verdad no, ya que este mundo esta diseñado para que hagamos lo contrario.
+- Satanás no quiere que escuchemos a Jehova, el intenta opacar su voz con todo el ruido de este mundo.
+- Entonces, si le esta costando escuchar la voz de Jehova, si lucha por obedecerle día tras dia.
+- No se sienta mal, Jehova sabe que no es sencillo
+- Nunca olvide que su obediencia, aunque a veces sea una lucha, es para Él el regalo más valioso que le puede ofrecer
+- Jehova lo valora, y se pone muy feliz.
+---
+- Y recuerde, **usted no está solo en esta lucha**
+- En este preciso momento, frente a mi
+- Veo a muchos ejemplos de fe
+- Veo a hermanos y hermanas que se esfuerzan cada día por obedecer a Jehová:
+	- a pesar de los problemas de salud
+	- de las crisis económicas 
+	- o de la presión familiar.
+- Gracias...
+- Este es un regalo que nuestro Padre nos da, para que nos animemos unos a otros.
+- Para que sigamos luchando por hacer lo que esta bien a sus ojos. 
+
+- Y si seguimos luchando juntos, tenemos la garantía de que Jehová, nunca permitirá que fracasemos.
 ## Conclusión (1 min.)
 
 - En este discurso hemos visto que el éxito real no depende de las circunstancias externas, sino de nuestra disposición de escuchar y obedecer a Jehová.
