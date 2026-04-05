@@ -89,11 +89,12 @@
 - Y recuerde, **usted no está solo en esta lucha**
 - En este preciso momento, frente a mi
 - Veo a muchos ejemplos de fe
-- Veo a hermanos y hermanas que se esfuerzan cada día por obedecer a Jehová:
+- Y hay muchos conectados por Zoom esta noche
+- Acá tenemos a hermanos y hermanas que se esfuerzan cada día por obedecer a Jehová:
 	- a pesar de los problemas de salud
 	- de las crisis económicas 
 	- o de la presión familiar.
-- Gracias...
+- No cabe duda…
 - Este es un regalo que nuestro Padre nos da, para que nos animemos unos a otros.
 - Para que sigamos luchando por hacer lo que esta bien a sus ojos. 
 
