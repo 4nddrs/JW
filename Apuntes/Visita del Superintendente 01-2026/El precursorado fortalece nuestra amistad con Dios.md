@@ -109,3 +109,10 @@
 - Metas:
 	1. Tener un buen horario
 	2. Tener el privilegio de tener un estudio bíblico
+- Tenemos que hacer esto:
+	- Salmo 147:1
+		- Un precursor da alabanzas a Jehová.
+		- Como precursores tocamos música para Jehová.
+		- Queremos que Jehová se deleite con nuestra música.
+		- No queremos tocar ruido, queremos tocar piezas musicales
+		- Jehová se lo merece
