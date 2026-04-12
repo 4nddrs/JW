@@ -1,0 +1,66 @@
+- Galatas 6:7,8
+- Uno cosecha lo que siembra
+- Tarde o temprano nos sentamos ante un banquete de consecuencias. 
+- Debemos pensar bien antes de tomar una decisión.
+	- Nunca cambiaras tu vida hasta que cambies tus decisiones.
+- Si queremos conseguir vida eterna debemos:
+	- Ser obedientes
+	- Hacer la voluntad de Jehová.
+	- Uno debe asegurar una buena cosecha
+- No podemos sembrar rocas y esperar cosechar diamantes
+- Debemos ser realistas y pensar bien:
+	- Que vamos a sembrar?
+### Debemos hacer 3 cosas:
+
+#### Evitar las obras de la carne
+- Galatas 6:8
+- Los seres humanos tenemos la tendencia a pecar
+- Todos tenemos el pecado heredado
+- No podemos entregarnos a esa tendencia
+	- Tenemos que luchar contra estas cosas que se mencionan en:
+		- Galatas 5: 19-21
+	- La lucha contra los malos deseos es muy dura
+	- No queremos perder esta batalla
+	- Alguien que controla estos malos deseos de la carne es alguien que progresa espiritualmente.
+- Para poder cosechar vida eterna debemos hacer algo en especifico:
+	- Galatas6:8 (parte b)
+	- Debemos sembrar pensando en el espíritu.
+	- Dejemos que el espiritu de Jehová influya en nuestra forma de pensar
+	- Galatas 5:22, 23
+		- Si sembramos en el espiritu significa que nos estamos exponiendo a este espiritu, y dejamos que influya en nosotros
+		- Aquí se habla de solo un fruto, lo que quiere decir que debemos cultivar todos los rasgos de este espiritu.
+	- Efesios 4:24
+		- Debemos tener una nueva personalidad
+		- Esto no es tan facil
+		- Necesitamos darle atención a puntos que nos cuesten cumplir
+			- La felicidad no es circunstancial, es algo que debe ser contantes.
+			- Amar a todos nuestros hermanos en la congregacion.
+	- Debemos conseguir una buena tierra donde sembrar nuestra semilla
+	- Galatas 5: 16, 17
+		- Una que hemos cultivado el fruto del espiritu debemos mantenerlo
+		- Debemos seguir andando de acuerdo con el espíritu.
+		- Necesitamos quedarnos cerca de este espíritu en todo momento.
+		- Debemos rechazar estos malos deseos.
+			- Es imposible pensar de que vamos a servir a Jehová, en circunstancias perfectas.
+		- Galatas 5:19
+			- Los malos deseos son peligrosos
+			- Son semillas que pueden crecer en nuestro corazón.
+		- Que alimentamos?
+			- Los buenos deseos o los malos?
+				- Va a depender de donde ponemos la mente
+			- Romanos 8: 5, 6
+		- Debemos cuidar lo que vemos y escuchamos 
+		- Las redes sociales son de doble filo
+		- Si usamos las redes sociales… que dicen de nosotros?
+			- Estamos presumiendo?
+		- Esforcémonos en concentrarnos en asuntos espirituales.
+		- Que es lo que ocupa el primer lugar en nuestras vida?
+			- Debemos leer la Biblia todos los días
+			- Estudiar constantemente
+			- En la congregacion es donde fluye el espiritu de Jehová 
+
+- Galatas 6:9
+	- Si hemos hecho algo que esta mal, debemos tomar en cuenta estas palabras.
+	- Jehová nos ayudara a vivir de acuerdo a sus normas
+	- No nos rindamos
+	- Con la ayuda de Jehová vamos a alcanzar la vida eterna
