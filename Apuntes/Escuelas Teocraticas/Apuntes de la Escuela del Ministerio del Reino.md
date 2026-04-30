@@ -68,6 +68,7 @@
 - No dejemos que el tiempo nos aleje de ella, sino todo lo contrario
 
 #### Hijos
+
 - Debemos enseñar con el ejemplo
 - Si enseñamos con el ejemplo los hijos se darán cuenta que esta es la verdad
 - Actividades como el estudio en familia y la predicación nos une como familia
@@ -81,7 +82,6 @@
 - Todo lo que Jehová hace es por amor
 - Podemos preocuparnos personalmente por cada integrante
 - Si cumplimos con nuestras responsabilidades familiares [[Podemos alabar a Jehová todo el día.|alabaremos]] a Jehová
-
 
 ## Esfuércense por una labor muy buena
 
@@ -134,9 +134,9 @@
 - Tenemos que tratar de corregir a esta persona
 - La Biblia no condena a las personas que luchan con sus malos deseos
 - Cómo podemos ayudarlo:
-    1. No alimentar la mente con deseos incorrectos.
-    2. La persona tiene que estar convencido de que Jehová puede ayudarlo a combatir estos malos deseos
-    3. Nosotros podemos ser de mucha ayuda, ayudemos a que los hermanos se guíen por principios Bíblicos
+  1. No alimentar la mente con deseos incorrectos.
+  2. La persona tiene que estar convencido de que Jehová puede ayudarlo a combatir estos malos deseos
+  3. Nosotros podemos ser de mucha ayuda, ayudemos a que los hermanos se guíen por principios Bíblicos
 
 #### Cómo podemos dominar nuestra mente? Y luchar contra la ansiedad?
 
@@ -153,14 +153,12 @@
 - Nos llegan muchas preocupaciones y nos sentimos débiles
 - Salmo 41:3
 - Jehová nos ofrece sostenernos cuando estamos debiles
-    
-    1. Isaias 40:11
-    
-    - Jehová nos cuidara como un pastor
-    - Cuando leemos brazos y pecho Jehová quiero que sintamos proteccion
-    - Jesus copio las cualidades de Jehová
-    - Jesús murio por nosotros
-    - Debemos apoyarnos en Jehová tanto mentalmente como espiritual
+  1. Isaias 40:11
+  - Jehová nos cuidara como un pastor
+  - Cuando leemos brazos y pecho Jehová quiero que sintamos proteccion
+  - Jesus copio las cualidades de Jehová
+  - Jesús murio por nosotros
+  - Debemos apoyarnos en Jehová tanto mentalmente como espiritual
 - Tenemos este sistema:
 
 1. Jehová y Jesus **( Isa 40:11, Jn 3:11-15)**
@@ -201,23 +199,23 @@
 - El amor está enlazado con la libertad
 - Solo se puede amar de verdad por iniciativa propia
 - Pregúntese:
-    - Por qué nos ha dado Jehová principios?
-        - Jehová quiere dar ni una guía para usar nuestra libertad
-        - El amor a Jehová y al prójimo nos guía a tomar buenas decisiones
-    - Cómo podemos utilizarlos?
-        - Romanos. 12:1
-        - Jehová nos dio la capacidad de razonar
-        - Debemos prestar atención cuando leemos la Biblia
-        - Apliquemos esos principios en nuestra vida
+  - Por qué nos ha dado Jehová principios?
+    - Jehová quiere dar ni una guía para usar nuestra libertad
+    - El amor a Jehová y al prójimo nos guía a tomar buenas decisiones
+  - Cómo podemos utilizarlos?
+    - Romanos. 12:1
+    - Jehová nos dio la capacidad de razonar
+    - Debemos prestar atención cuando leemos la Biblia
+    - Apliquemos esos principios en nuestra vida
 
 #### Dejemos que los principios nos guíen al tomar decisiones
 
 - Dejemos que Jehová nos ayude a tomar la decisión
 - Cómo podríamos ayudar a alguien a que se guíe por principios?
-    - Mostrarles textos bíblicos
-    - Que haría Jesús?
-    - Dejemos que la persona use su capacidad de razonar
-    - Galatas 6:5
+  - Mostrarles textos bíblicos
+  - Que haría Jesús?
+  - Dejemos que la persona use su capacidad de razonar
+  - Galatas 6:5
 - Pongamos el ejemplo a los demás
 - 1 Corintios. 4:6
 - Pablo les estaba ayudando a los hermanos la importancia de no seguir a los hombres, sino a Jehová
@@ -230,21 +228,21 @@
 - Debemos fijar límites
 - No debemos ganarnos la fama de ser aficionados al alcohol
 - Pensemos en un varón nombrado, tiene varias actividades
-    - Usa el alcohol para relajarse
-    - El peligro está en que se haga adicto y quiera más
+  - Usa el alcohol para relajarse
+  - El peligro está en que se haga adicto y quiera más
 - Aplicar los principios nos ayuda a ser cautelosos
 - Tenemos el principio de:
 - Salmo 36:9
-    - Debemos atesorar la vida
+  - Debemos atesorar la vida
 - Proverbios 14:16
-    - Debemos evitar el exceso de confianza
+  - Debemos evitar el exceso de confianza
 - Cómo puedo saber cuándo es mi límite?
-    - Si se nos nubla la razón
+  - Si se nos nubla la razón
 - Debemos ponernos un límite claro
 - Jeremías 17:9
-    - El corazón es traicionero, y puede que no pensemos con la razón
+  - El corazón es traicionero, y puede que no pensemos con la razón
 - Mateo 5:29
-    - Debemos establecer una acción radical, capaz sea mejor no beber
+  - Debemos establecer una acción radical, capaz sea mejor no beber
 - Debemos tomar en cuenta la conciencia de los demás
 
 #### Cuáles son los beneficios de dejarnos guiar por los principios Bíblicos
@@ -291,11 +289,11 @@
 - Salmo 34:18
 - Queremos estar cerca de nuestros hermanos
 - Examinemos 2 parábolas:
-    1. Lucas 15:4-7
-        - “hasta que la encuentre” Jehová es paciente y la busca hasta que la encuentre
-    2. Lucas 15: 11-14, 17-24
-        - Nosotros debemos tomar la iniciativa a mostrar nuestro amor
-        - Primero queremos confirmar el amor de Jehová y el nuestro hacia ellos
+  1. Lucas 15:4-7
+     - “hasta que la encuentre” Jehová es paciente y la busca hasta que la encuentre
+  2. Lucas 15: 11-14, 17-24
+     - Nosotros debemos tomar la iniciativa a mostrar nuestro amor
+     - Primero queremos confirmar el amor de Jehová y el nuestro hacia ellos
 - Ezequiel 34:15, 16
 - “Yo mismo” Jehová Dios nos va a cuidar
 - Jehová cumplirá con su promesa por medio de nosotros
@@ -314,8 +312,8 @@
 - Jehová no se cansa de buscar a la oveja perdida
 - Jehová nos utiliza a nosotros para recordarles cuánto les ama
 - Qué cualidades necesitamos para no rendirnos?
-    - Amor
-    - Empatía
+  - Amor
+  - Empatía
 - Óseas 11:4
 - Jehová utiliza las cuerdas del amor
 - No estamos ahí para juzgarlos con dureza, estamos para demostrarles amor
@@ -363,9 +361,9 @@
 
 - La confianza es muy importante para el matrimonio
 - La esposa puede demostrar confianza en la:
-    - Confidencialidad
-    - Dinero
-    - Al administrar el hogar
+  - Confidencialidad
+  - Dinero
+  - Al administrar el hogar
 - A menudo en el mundo el trabajo doméstico es algo degradable, pero Jehová no lo ve así
 - Los demás deben ver al matrimonio como un equipo
 - Tener un día especial cada semana para estar juntos
@@ -403,12 +401,12 @@
 - Filipenses 2:17
 - Cuál es la clave para cumplir con todas las responsabilidades, y no perder el equilibrio?
 - Filipenses 1:10
-    - Asegurarnos de las cosas más importantes
-    - Cuáles son las más importantes?
-        1. La adoración a Jehová (Mateo 4:10)
-        2. El cuidado de la familia (1 Timoteo 5:8)
-        3. El trabajo (2 Tesalonisenses 3:10)
-        4. El esparcimiento (1 Timoteo 4:8)
+  - Asegurarnos de las cosas más importantes
+  - Cuáles son las más importantes?
+    1. La adoración a Jehová (Mateo 4:10)
+    2. El cuidado de la familia (1 Timoteo 5:8)
+    3. El trabajo (2 Tesalonisenses 3:10)
+    4. El esparcimiento (1 Timoteo 4:8)
 - Nuestro privilegio como Siervo Ministerial es una protección para mantener ese orden en nuestra vida
 - Josue 1: 7
 - Aquí se nos habla de como ser valientes, lo logramos cuando aprendemos y meditamos en la Palabra de Dios
@@ -421,11 +419,12 @@
 - Jehová nos premiará por todo el esfuerzo
 
 ---
+
 ## Conclusión
 
 - Salmo 78:72
 - Pastorear requiere trabajo duro y habilidad
 - El amor a los demás nos mueve a hacerlo
 - Jehová [[¡Que los nervios no lo frenen!#Jehová necesita algo que bendecir ✋📚|bendecirá]] todos nuestros esfuerzos
-- Todos tenemos distintas tareas, pero las hacemos con gozo motivados por el amor a Jehova y a los hermanos
+- Todos tenemos distintas tareas, pero las hacemos con gozo motivados por el amor a Jehová y a los hermanos
 - La canción a terminado, pero la melodía perdura
