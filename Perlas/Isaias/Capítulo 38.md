@@ -2,13 +2,13 @@
 
 Cuando el rey Ezequías estuvo al borde de la muerte, comprendió algo que muchas veces olvidamos: la vida no es un derecho garantizado, es un regalo.
 
-En su reflexión dice que los que bajan a la tumba no pueden alabar a Jehová, pero el que está vivo sí puede hacerlo. Él entendió que mientras respiramos, tenemos una oportunidad invaluable: honrar y glorificar a Jehova.
+En su reflexión dice que los que bajan a la tumba no pueden alabar a Jehová, pero el que está vivo sí puede hacerlo. Él entendió que mientras respiramos, tenemos una oportunidad invaluable: honrar y glorificar a Jehová.
 
 Esto nos enseña algo profundo. A veces damos por sentado que siempre tendremos tiempo para:
 
 - Ir a las reuniones.
 - Predicar.
-- Orar a Jehova.
+- Orar a Jehová.
 
 Pero la realidad es que existe “el tiempo y el suceso imprevisto”. La vida puede cambiar en un instante. Ezequías sintió eso cuando recibió la noticia de que moriría.
 
@@ -23,4 +23,3 @@ Cada día que despertamos es una oportunidad que no volverá. Es un día más pa
 - Servir con nuestras acciones.
 
 Sería un error asumir que siempre podremos hacerlo mañana. La vida es frágil mientras vivamos en un mundo gobernado por Satanas, pero mientras la tengamos, es un instrumento para glorificar a Jehová.
- 
