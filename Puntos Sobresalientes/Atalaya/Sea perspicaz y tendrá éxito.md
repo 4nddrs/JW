@@ -1,0 +1,2 @@
+[***Atalaya,marzo de 2026 (párrafo 8)***](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=2026323&par=16)
+Acá Pablo reconoce que los cristianos podemos enojarnos por motivos justificados. Sin embargo, nos advierte que no permitamos que ese enojo nos lleve a pecar. La nota de estudio menciona que una buena manera de evitarlo es hacer lo que aconseja el Salmo 4:4: hablar con Jehová en oración sobre lo que nos preocupa. 
