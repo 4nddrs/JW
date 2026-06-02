@@ -56,7 +56,7 @@
 - En todos los caminos hay límites, esos límites están para protegernos.
 - Nos irá bien si respetamos los límites
 - Podemos buscar formas de hacer cosas buenas por los demás
-- Sigamos ajustando nuestros [[Apuntes de la Escuela del Ministerio del Reino#Como podemos dominar nuestra mente?|pensamientos]] y acciones para estar en paz con todos.
+- Sigamos ajustando nuestros [[Pongámonos al frente del ministerio con valor#Como podemos dominar nuestra mente?|pensamientos]] y acciones para estar en paz con todos.
 
 # Tarde
 

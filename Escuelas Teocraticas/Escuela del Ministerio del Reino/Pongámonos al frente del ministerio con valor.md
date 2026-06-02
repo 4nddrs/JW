@@ -1,4 +1,3 @@
-# Pongámonos al frente del ministerio con valor
 
 - Somos maestros de las buenas noticias
 - Pase lo que pase queremos seguir siéndolo
