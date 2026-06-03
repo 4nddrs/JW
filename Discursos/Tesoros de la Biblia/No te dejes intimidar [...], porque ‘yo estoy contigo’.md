@@ -1,6 +1,6 @@
 ### INTRODUCCIÓN
 - Imagine que Jehová le habla en este momento y le dice: 
-	- “Quiero que vayas y les hables a personas que no quedran escucharte. 
+	- “Quiero que vayas y prediques a personas que no quedran escucharte. 
 	- Algunos se burlarán de ti, otros te rechazarán, posiblemente te maltraten físicamente, y tendrás que hacerlo durante varios años”.
 
 - ¿Cuál sería su reacción?
@@ -60,9 +60,9 @@
 - Jehová conoce nuestras limitaciones
 - Pero también conoce nuestro potencial si nos apoyamos en él. 
 
-- A lo largo de las próximas semanas, veremos cómo Jehová utilizo a un joven que al inicio era tímido para cumplir con su propósito. 
+- A lo largo de las próximas semanas, veremos cómo Jehová utilizo a un joven que al inicio era tímido, pero Jehová lo capacitó para poder cumplir con su propósito. 
 - Jeremias llego a ser una valiosa herramienta en las manos de Jehova
 
 - Y nosotros igual podemos serlo...
 - Si acudimos a Jehova en oración y dejamos que el guíe nuestro camino.
-- Nada ni nadie, impedirá que le seamos fieles.
+- Nada ni nadie, impedirá que le seamos fieles y leales para siempre.
