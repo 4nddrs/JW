@@ -462,3 +462,5 @@
 	- **Contexto / Entorno:** Jesús buscaba soledad para orar no por rechazo social, sino por prioridad espiritual — el párrafo de la referencia señala en Lucas 5:16 que _"a menudo"_ se iba a lugares retirados, lo que indica un hábito constante, no ocasional.
 	
 	- **Valor de la referencia:** En Marcos 14:36, la expresión "Abba, Padre" aparece en el momento de mayor presión emocional de Jesús, revelando que su relación con Jehová era su ancla en la prueba más severa — un modelo directo para nosotros.
+
+##### ¿Por qué se hace más fuerte tu amistad con Jehová cuando le oras mucho?
