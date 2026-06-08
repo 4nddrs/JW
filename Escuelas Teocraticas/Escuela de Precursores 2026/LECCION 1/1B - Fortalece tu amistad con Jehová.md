@@ -464,3 +464,81 @@
 	- **Valor de la referencia:** En Marcos 14:36, la expresión "Abba, Padre" aparece en el momento de mayor presión emocional de Jesús, revelando que su relación con Jehová era su ancla en la prueba más severa — un modelo directo para nosotros.
 
 ##### ¿Por qué se hace más fuerte tu amistad con Jehová cuando le oras mucho?
+
+- **RESPUESTA 1 — Directa**
+	- Santiago 4:8 lo expresa con una promesa hermosa y recíproca: "Acérquense a Dios y él se acercará a ustedes." 
+	- La oración de forma frecuente es precisamente esa iniciativa de acercarse. 
+	- Cuando tomamos el hábito de hablarle a Jehová con regularidad, la relación se profundiza de forma natural, igual que cualquier amistad genuina.
+
+- **RESPUESTA 2 — Complementaria**
+	- Pero hay algo más: no necesitamos esperar tener las palabras perfectas. 
+	- El párrafo nos recuerda que incluso cuando no encontramos cómo expresar lo que sentimos, el espíritu aboga por nosotros ante Jehová. 
+	- Eso significa que podemos acudir a él en cualquier estado emocional — con angustia, confusión o gratitud — y él entenderá. 
+	- Esa confianza es lo que hace crecer la amistad.
+
+- **ANÁLISIS**
+
+	- **"Acérquense" — Sant. 4:8:** El verbo en griego implica un movimiento deliberado y continuo, no un acto único. La amistad se construye acercándose _repetidamente_, no en una sola oración.
+	
+	- **Contexto / Entorno:** Los párrafos contrastan la comunicación digital de hoy — redes sociales, mensajes de texto — con la oración personal. El punto es que ninguna tecnología reemplaza la comunicación directa con Jehová; él es el "Oidor de la oración", siempre disponible. 
+	
+	- **Valor de la referencia:** El párrafo conecta Romanos 8:26, 27 con libros como Job, Salmos y Proverbios como herramientas prácticas para enriquecer la oración — un detalle útil: estudiar esos libros nos da vocabulario espiritual para expresarle a Jehová nuestros sentimientos más profundos.
+
+##### ¿Por qué es bueno que estés pendiente de cómo Jehová responde tus oraciones?
+
+- **RESPUESTA 1 — Directa**
+	- Estar pendiente de las respuestas de Jehová nos ayuda a verlo como alguien real y cercano. 
+	- El párrafo señala que si somos específicos en nuestras oraciones, será más fácil reconocer cómo él responde. 
+	- Cada respuesta que notamos es evidencia concreta de que Jehová nos escucha, y eso fortalece la amistad de forma genuina.
+
+- **RESPUESTA 2 — Complementaria**
+	- El caso de Carmen lo ilustra perfectamente: empezó con oraciones diarias y específicas pidiendo ayuda para disfrutar la predicación. 
+	- Con el tiempo, no solo logró disfrutarla, sino que ella misma reconoce: "Jehová y yo somos más amigos que nunca." 
+	- Cuando vemos respuestas concretas, la relación deja de ser abstracta — se vuelve personal y profunda.
+
+- **ANÁLISIS**
+	- **Oración específica vs. general:** El párrafo destaca un principio práctico clave: cuanto más específica es la petición, más fácil es reconocer la respuesta. Las oraciones vagas producen gratitud vaga; las oraciones concretas producen fe concreta.
+	
+	- **Contexto / El caso de Carmen:** Carmen no cambió su situación de golpe — el proceso tomó tiempo ("ya llevo tres años"). Esto enseña que las respuestas de Jehová a veces son graduales y se ven solo si uno está atento y persevera en la oración.
+	
+	- **Valor de la referencia:** La frase "Jehová será más real para nosotros" es la perla central del párrafo. No se trata solo de recibir lo pedido, sino de que cada respuesta convierte a Jehová en un Amigo más real en la vida diaria.
+
+#### ¿Cómo sabemos que Jesús no confió en sí mismo en los momentos difíciles?
+
+- **RESPUESTA 1 — Directa**
+	- Lo vemos claramente en cómo enfrentó las tentaciones de Satanás. 
+	- En lugar de razonar por su propia sabiduría, Jesús usó la expresión "Está escrito" tres veces cuando citó las Escrituras Hebreas al ser tentado por el Diablo.
+	- Jesus se apoyo en la Palabra de su Padre en vez de en sus propios criterios. 
+	- El hombre más sabio de la Tierra eligió la humildad.
+
+- **RESPUESTA 2 — Complementaria**
+	- Y esta actitud no fue solo ante Satanás — fue constante. 
+	- En Getsemaní, la noche más difícil de su vida, "ofreció peticiones y ruegos con fuertes clamores y lágrimas". 
+	- El párrafo destaca que la palabra _ruego_ implica una súplica sincera e intensa, y aparece en plural, lo que indica que Jesús le imploró ayuda a Jehová repetidamente. 
+	- Nunca recurrió a sí mismo; siempre acudió a su Padre.
+
+- **ANÁLISIS**
+	- - **"Está escrito" — Mat. 4:7, 10:** Cada vez que Jesús usó esta frase, estaba citando de las Escrituras Hebreas, lo que demuestra que su arma contra la tentación era el conocimiento profundo de la Palabra de Dios — algo que requirió preparación previa, no improvisación. 
+	
+	- **"Ruegos" en plural — Heb. 5:7:** El párrafo aclara que el término _ruego_ implica implorar ayuda de forma especialmente sincera e intensa, y el plural indica que fue en más de una ocasión. Esto revela que la dependencia de Jesús en Jehová era continua y profunda, no esporádica.
+	
+	- **Valor de la referencia — Daniel 9:20, 21:** El párrafo añade un detalle poderoso: Jesús, desde el cielo, había presenciado cómo Jehová respondió a Daniel incluso antes de que terminara de orar. Esa experiencia previa le daba plena confianza en que su Padre lo escucharía.
+
+##### Jesús le oró a Jehová con toda confianza. ¿Cómo puedes imitarlo?
+
+- **RESPUESTA 1 — Directa**
+	- Podemos imitar a Jesús orando con la plena convicción de que Jehová nos escucha. 
+	- Ante la tumba de Lázaro, Jesús oró públicamente diciendo: "Padre, te doy las gracias por haberme escuchado. Yo sé que tú siempre me escuchas." 
+	- Esa certeza absoluta de ser escuchado es la base de la confianza en la oración, y nosotros podemos cultivarla de la misma manera.
+
+- **RESPUESTA 2 — Complementaria**
+	- Hebreos 11:6 añade la condición esencial: "El que se acerca a Dios tiene que creer que él existe y que recompensa a los que lo buscan con empeño" 
+	- Imitar a Jesús significa acercarnos a Jehová con fe genuina — no como un ritual, sino con la convicción de que él nos conoce, nos escucha y responderá conforme a lo que más nos conviene.
+
+- **ANÁLISIS**
+	- **Juan 11:41 — "te doy gracias por haberme escuchado":** Jesús agradeció _antes_ de ver el resultado del milagro. Eso revela un nivel de fe extraordinario: su confianza en Jehová era tan sólida que la respuesta ya la daba por segura.
+	
+	- **"Remunerador" — Heb. 11:6:** La palabra griega original implica a alguien que _recompensa activamente_ a quienes lo buscan. No es indiferencia divina — Jehová responde de forma deliberada a quienes se acercan con fe sincera.
+	
+	- **Valor de la referencia combinada:** Juntos, Juan 11:41, 42 y Hebreos 11:6 forman una fórmula completa: 
+	- Fe en que Dios existe + convicción de que escucha + gratitud anticipada = la oración con plena confianza que Jesús hizo.
