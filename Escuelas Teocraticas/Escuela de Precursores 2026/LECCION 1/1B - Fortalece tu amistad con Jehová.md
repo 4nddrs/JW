@@ -232,7 +232,7 @@
 	
 	- **Valor de la referencia:** El esclavo fiel no es simplemente una organización administrativa; es el "mayordomo" con responsabilidad directa ante Jesús. [Luc. 12:42](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=42012042&pub=nwtsty) añade que tiene a su cargo a _toda_ la servidumbre — lo que incluye a cada precursor que depende de los recursos espirituales que ese esclavo provee.
 
-#### ¿Cómo demostró Jesús de manera ejemplar que valoraba la Palabra de Dios?
+##### ¿Cómo demostró Jesús de manera ejemplar que valoraba la Palabra de Dios?
 
 - **RESPUESTA 1 — Directa**
 	- Cuando Satanás tentó a Jesús en el desierto — hambriento, solo y en su momento más vulnerable — la respuesta de Jesus fue citar las Escrituras. 
@@ -250,3 +250,215 @@
 	- **[Contexto de la tentación]:** Jesús llevaba 40 días sin comer cuando Satanás lo tentó. La condición física más extrema no debilitó su conocimiento de la Palabra ni su disposición a aplicarla — eso demuestra que tenia una meditación profunda y sostenida, exactamente como la que se estudió en preguntas anteriores.
 	
 	- **[Heb. 12:2](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&bible=58012002&pub=nwtsty) — "Agente Principal y Perfeccionador":** El término griego _archēgós_ significa literalmente "el que abre el camino". Jesús no solo valoró la Palabra de Dios — se convirtió en el ejemplo vivo de cómo vivirla hasta el final, abriendo así el camino para que nosotros hagamos lo mismo.
+
+#### ¿Por qué tu amistad con Dios se hace más fuerte cuando observas la creación?
+
+- **RESPUESTA 1 — Directa**
+	- Observar la creación nos acerca a Jehová porque nos revela sus cualidades invisibles: su poder eterno, sabiduría y amor. 
+	- Como dice Pablo en Romanos 1:20, esas cualidades "se perciben por las cosas creadas". 
+	- Cada detalle del mundo natural es evidencia directa de quién es nuestro Creador, y reconocerlo fortalece nuestra confianza en él.
+
+- **RESPUESTA 2 — Complementaria**
+	- La creación no solo demuestra que Dios existe, sino que habla de su _personalidad_. 
+	- El diseño inteligente de la naturaleza refleja su sabiduría; los cielos, su poder; y los sabores, los amaneceres y la belleza, su amor hacia nosotros. 
+	- Meditar en esos detalles convierte la observación diaria en algo personal: nos hace sentir que Jehová pensó en nosotros.
+
+- **ANÁLISIS**
+	- **Palabra clave — "mundo" (griego _kosmos_):** Aquí no se refiere al planeta, sino a la _humanidad_; las pruebas de que Dios existe ha estado disponible para todo ser humano desde su creación.
+	
+	- **Contexto:** Pablo escribía a romanos rodeados de politeísmo; su argumento era que nadie tiene excusa válida para negar a un único Creador cuando la naturaleza lo demuestra con claridad.
+	
+	- **Valor de la Referencia:** La ilustración del conductor y la señal de tránsito hace tangible el concepto de "inexcusable": ignorar la creación no es falta de pruebas, sino una decisión consciente de no mirar.
+
+### Demuestra que amas a Jehová
+
+#### ¿Qué relación hay entre el conocimiento y el amor?
+
+- **RESPUESTA 1 — Directa**
+	- Pablo oró para que el amor de los filipenses se hiciera "cada vez más abundante con conocimiento exacto y pleno discernimiento". 
+	- Eso nos enseña que el amor y el conocimiento no son opuestos: el conocimiento genuino de Jehová alimenta y profundiza el amor que sentimos por él. 
+	- Conocerlo mejor nos hace amarlo más.
+
+- **RESPUESTA 2 — Complementaria**
+	- El conocimiento sin amor se vuelve frío e intelectual; el amor sin conocimiento puede volverse sentimental e impreciso. 
+	- Pablo los une intencionalmente: un amor que crece en conocimiento nos ayuda a "asegurarnos de las cosas más importantes" y a tomar decisiones sabias. 
+	- Es una combinación que nos protege y nos hace madurar espiritualmente.
+
+- **ANÁLISIS**
+	- **Palabra clave — "conocimiento exacto" (griego _epígnosis_):** No es conocimiento superficial sino profundo y preciso; Pablo usa un término más intenso que el griego común _gnosis_, indicando que se trata de un conocimiento personal y transformador.
+	
+	- **Contexto:** Pablo escribía desde prisión a los filipenses expresándoles un tierno cariño genuino, lo que hace que su oración por el amor de ellos sea especialmente significativa: viene de alguien que vivía lo que predicaba. 
+	
+	- **Valor de la Referencia:** El versículo conecta directamente con el tema de la lección: fortalecer la amistad con Jehová requiere que el amor _crezca activamente_, no que simplemente se mantenga; el conocimiento es el combustible de ese crecimiento. Ya que cuanto mas conozcamos a Jehova mas lo amaremos.
+
+##### ¿Cómo sabemos que, además de sentir un fuerte amor por Jehová, debemos demostrarlo con hechos?
+
+- **RESPUESTA 1 — Directa**
+	- Juan deja claro que el amor a Dios no es solo un sentimiento, sino algo que se demuestra con hechos. 
+	- El amor a Dios consiste en obedecer sus mandamientos, y esos mandamientos no son una carga. 
+	- Poniendo el practica en nuestro día a día la palabra de Jehová es como nuestro amor realmente crece, no quedándose solo en palabras o emociones.
+
+- **RESPUESTA 2 — Complementaria**
+	- Hay una conexión directa entre amar y actuar. 
+	- El amor genuino tiene un efecto en cadena: se refleja en cómo tratamos a Jehová y por lo tanto a nuestros hermanos. 
+	- Las acciones son la prueba visible de un amor invisible.
+
+- **ANÁLISIS**
+	- **Palabra clave — "se ha hecho perfecto":** En el griego original _teleioō_ significa "llevado a su objetivo final"; el amor no se perfecciona solo sintiéndolo, sino cumpliéndolo, de esta forma llega a su propósito completo mediante la obediencia.
+	
+	- **Contexto:** Juan escribía en una época donde se promovía la idea de que bastaba con el _conocimiento_ interior para agradar a Dios; su énfasis en la obediencia práctica contradice directamente esa idea peligrosa.
+	
+	- **Valor de la Referencia — 1 Juan 5:3:** Añade un detalle reconfortante: los mandamientos de Jehová no son una carga pesada. Esto transforma la obediencia de una obligación en una expresión natural del amor, algo que hacemos con gusto, y no por temor.
+
+#### ¿Cómo puedes demostrar que de verdad amas a Dios? 
+
+- **Romanos 10:10 — Con la boca: declaración pública**
+	- Demuestro que amo a Jehova cuando no guardo esa fe solo para mí. 
+	- Hablar de él a otros, participar en reuniones y en la predicación es una forma concreta y valiente de demostrar ese amor.
+
+- **2 Corintios 7:1 — Con la conducta: limpieza moral**
+	- Amar a Jehova significa cuidar activamente nuestra conducta. 
+	- No es un proceso instantáneo, sino un esfuerzo diario de alejarnos de lo que le desagrada, motivados por el amor y el respeto que sentimos por él.
+
+- **Efesios 4:15 — Con la verdad dicha con amor**
+	- Demuestro que amo a Jehova cuando hablo con honestidad, incluso cuando es difícil. 
+	- El amor genuino no oculta la verdad ni la endulza de más; la dice con cariño y con el propósito de edificar.
+
+* **1 Timoteo 1:5 — Con el corazón: amor puro y fe sincera**
+	- Este versículo nos enseña que demostrar amor a Jehova empieza por dentro. 
+	- No con actitudes externas de apariencia, sino con una fe genuina que impulsa naturalmente las acciones correctas.
+
+- **Hebreos 10:23-25 — Con la asistencia a las reuniones**
+	- Ir a cada reunión es una decisión concreta que demuestra que amamos a Jehová y que valoramos a nuestros hermanos.
+
+- **1 Juan 3:17-18 — Con obras concretas hacia los hermanos**
+	- El amor verdadero no vive solo en las palabras; se demuestra con acciones reales y concretas hacia quienes nos rodean cada día.
+
+- **ANÁLISIS GENERAL**
+	- **Hilo conductor:** Los seis textos forman una sola idea: el amor a Dios tiene seis canales de expresión — la boca, la conducta, la honestidad, el corazón, la congregación y las obras hacia el prójimo. Ninguno reemplaza a los demás.
+
+	- **Dato clave — "declaración pública" en Ro. 10:10:** Se usa el término _homologeō_ (reconocer públicamente); el amor no puede quedarse callado, tiene que manifestarse ante otros.
+
+	- **Valor del conjunto:** Juan cierra el argumento con la prueba más práctica de todas: el trato al hermano necesitado. Es el espejo más fiel del amor real a Dios.
+
+#### ¿Qué aprendes del ejemplo de amor y obediencia de Jesús?
+
+- **RESPUESTA 1 — Directa**
+	- Jesús nos enseña que el amor a Jehová no se da por sentado ni se mantiene solo. 
+	- Durante toda su vida en la Tierra se esforzó activamente por mantenerlo fuerte. 
+	- Su ejemplo nos muestra que demostrar ese amor requiere obediencia constante, no solo buenas intenciones o sentimientos.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo que más impresiona del ejemplo de Jesús es que, siendo perfecto, el igual se esforzó. 
+	- Jesus vivió con Jehova mucho tiempo antes de venir a la tierra, pero aun así el no dio por hecho que iba a ser obediente.
+	- Su obediencia no nació del temor sino de un amor genuino que siguió cultivando cada dia.
+	- Y ese mismo amor es el que nos invita a imitar hablando la verdad, cuidando nuestra conducta y sirviendo a los demás con hechos concretos.
+
+- **ANÁLISIS**
+	- **Principio clave:** El amor a Dios es como una planta viva — necesita que la nutramos constantemente; Jesús es el modelo de alguien que nunca dejó de nutrir ese amor.
+	
+	- **Conexión con la lección:** Todos los textos estudiados (Ro. 10:10, 2 Co. 7:1, Ef. 4:15, Heb. 10:23-25, 1 Jn. 3:18) son canales prácticos de como demostrar amor que Jesús puso en practica.
+	
+	- **Aplicación personal:** La pregunta implícita que deja el ejemplo de Jesús es: _¿qué estoy haciendo **yo** hoy para que mi amor por Jehová sea más fuerte que ayer?_
+
+#### Si de verdad amamos a Jehová, ¿qué haremos con su nombre?
+
+- **RESPUESTA 1 — Directa**
+	- Jesús dejó el ejemplo perfecto: en su oración a Jehova dijo "les he dado a conocer tu nombre" y añadió que seguiría dándolo a conocer. 
+	- Si de verdad amamos a Jehová, haremos lo mismo — hablaremos de él, pronunciaremos su nombre y ayudaremos a otros a conocer quién es realmente.
+
+- **RESPUESTA 2 — Complementaria**
+	- Dar a conocer el nombre de Jehová va más allá de simplemente pronunciarlo. 
+	- Jesús ayudó a sus apóstoles a llegar a conocer lo que ese nombre representa: 
+		- Las cualidades de Jehová y su manera de tratar con los seres humanos. 
+	- Cuando hablamos de la personalidad de Jehová, su amor y sus propósitos, estamos honrando su nombre tal como el desea.
+
+- **ANÁLISIS**
+	- **Palabra clave — "dado a conocer" (griego _faneróō_):** Significa literalmente "poner de manifiesto" o "revelar"; no es solo mencionar un nombre, sino hacer visible la realidad de quién es Jehová ante los demás.
+	
+	- **Contexto:** Jesús pronunció estas palabras en la noche antes de morir, en oración. Que usara ese momento para hablar del nombre de Jehova revela cuánto peso tenía este asunto para él.
+	
+	- **Conexión con la lección:** El versículo 26 indica que Jesús _seguiría_ dando a conocer ese nombre — un proceso continuo, no un acto único. Así debe ser nuestro amor: una expresión constante, no ocasional.
+
+#### ¿Cómo podemos seguir el consejo de Jesús de nunca perder el gran amor que sentimos por Jehová?
+
+- **RESPUESTA 1 — Directa**
+	- La congregación de Éfeso hacía muchas cosas bien: aguantaba, trabajaba duro y no se cansaba. 
+	- Pero Jesús les advirtió algo muy serio: habían perdido el amor que tenían al principio. 
+	- Su consejo fue claro — recordar, arrepentirse y volver a hacer las cosas de la forma correcta. 
+	- Para no perder ese amor, necesitamos vigilarlo activamente y actuar cuando notamos que se enfría.
+
+- **RESPUESTA 2 — Complementaria**
+	- Es posible estar muy ocupado en actividades espirituales y, sin darse cuenta, perder el calor del amor original que teníamos. 
+	- Jesús dijo: "recuerda desde dónde has caído, arrepiéntete y haz las cosas que hacías al principio." 
+	- El remedio es mirar atrás con honestidad: 
+		- ¿cómo oraba yo antes? 
+		- ¿Con qué entusiasmo leía la Biblia? 
+	- Volver a esas actitudes del principio reaviva el amor.
+
+- **ANÁLISIS**
+	- **Contexto — Éfeso:** Era una de las congregaciones más activas y firmes del siglo primero; el mensaje de Jesús nos enseña que la actividad intensa _no garantiza_ que el amor siga vivo — son cosas distintas.
+	
+	- **Palabra clave — "recuerda":** El verbo griego _mnemonéuō_ implica un recuerdo intencional y activo, no nostálgico. Es una acción: _traer a la mente con propósito_ para corregir el rumbo.
+	
+	- **Conexión con la lección:** El amor a Jehová es como una planta viva, en Apocalipsis 2:1-5 leemos lo que ocurre cuando dejamos de nutrirla: aunque sigamos "funcionando", el amor se va marchitando por dentro sin que nos demos cuenta.
+
+#### ¿Qué dice nuestra obediencia de la amistad que tenemos con Jehová?
+
+- **RESPUESTA 1 — Directa**
+	- La obediencia es el termómetro más honesto de nuestra amistad con Jehová. 
+	- Juan dejó claro que el amor a Dios consiste precisamente en obedecer sus mandamientos, y que estos no son una carga. 
+	- Cuando obedecemos de corazón, le estamos diciendo a Jehová que nuestra amistad con él es real, no solo de palabras.
+
+- **RESPUESTA 2 — Complementaria**
+	- Una amistad genuina se demuestra con hechos, no con sentimientos solamente. 
+	- Así como Jesús mantuvo su amor por el Padre obedeciendo activamente durante toda su vida, nuestra obediencia diaria reflejada en:
+		- nuestra conducta 
+		- en la predicación
+		- en las reuniones
+		- en cómo tratamos a los hermanos 
+	- Es la forma más concreta de decirle a Jehová: "tu amistad es lo más importante de mi vida."
+
+- **ANÁLISIS**
+	- **Hilo de la lección:** Todos los textos estudiados apuntan a lo mismo: el amor genuino siempre produce acción. La obediencia es ese amor convertido en hechos visibles.
+	
+	- **Advertencia de Apocalipsis 2:** Es posible seguir "obedeciendo por costumbre" sin amor real. La calidad de nuestra obediencia — si nace del corazón o del hábito — revela el verdadero estado de nuestra amistad con Jehová.
+	
+	- **Conclusión de la lección:** Como dijo David, el amor leal de Jehová es mejor que la vida misma. Nuestra obediencia es la respuesta natural a ese amor, no una obligación impuesta.
+
+#### ¿Por qué es la oración un verdadero regalo?
+
+- **RESPUESTA 1 — Directa**
+	- La oración es un regalo porque nos da acceso directo al Creador del universo. 
+	- Jehová está cerca de todos los que lo llaman con sinceridad y satisface el deseo de los que le temen; oye sus gritos de auxilio y los rescata. 
+	- No hay privilegio mayor que ese.
+
+- **RESPUESTA 2 — Complementaria**
+	- Además, la oración nos da algo que el mundo no puede ofrecer: paz interior. 
+	- Al hacerle saber a Dios nuestras peticiones mediante oraciones y ruegos y dando gracias.
+	- La paz de Dios, que está más allá de lo que ningún ser humano puede entender, protegerá nuestros corazones y nuestras mentes. Es como una guardia invisible sobre nuestra mente.
+
+- **ANÁLISIS**
+	- **"Cerca" — Sal. 145:18:** La palabra hebrea implica proximidad activa y disponible, no simbólica. Jehová está cerca en el sentido de que escucha las oraciones de sus siervos y los protege. 
+	
+	- **Contexto de Filip. 4:6, 7:** Pablo escribió a los filipenses que estuvieran alegres y les explicó que la oración es el medio para recibir la paz de Dios. Lo hizo desde la prisión, lo que hace aún más poderoso el mensaje.
+	
+	- **Valor de la referencia:** Las peticiones pueden hacerse "en cualquier situación", lo que incluye todo tipo de circunstancia, siempre que estén de acuerdo con la voluntad de Jehová. No hay situación demasiado pequeña ni demasiado grande para llevarla en oración.
+
+##### ¿Qué importancia tenía la oración para Jesús?
+
+- **RESPUESTA 1 — Directa**
+	- Para Jesús, la oración era un canal íntimo y frecuente de comunicación con su Padre. 
+	- Buscaba momentos de soledad para orar, y en esas oraciones usaba la expresión _"Abba, Padre"_ — una palabra cariñosa con la que un hijo se refería a su padre, aunque también era un término respetuoso — que revelaba la profundidad de esa relación.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo que más llama la atención es que Jesús oraba incluso en los momentos más difíciles. 
+	- En Getsemaní, en la noche más angustiante de su vida, su instinto fue acudir a Jehová
+	- Jesus demostró: Confianza, amor y sumisión — todo en una sola oración.
+
+- **ANÁLISIS**
+	- **"Abba" — término arameo:** La palabra _abba_ era una de las primeras que aprendían los niños en aquella época, lo que la hacía un término común pero sin perder el respeto.
+	
+	- **Contexto / Entorno:** Jesús buscaba soledad para orar no por rechazo social, sino por prioridad espiritual — el párrafo de la referencia señala en Lucas 5:16 que _"a menudo"_ se iba a lugares retirados, lo que indica un hábito constante, no ocasional.
+	
+	- **Valor de la referencia:** En Marcos 14:36, la expresión "Abba, Padre" aparece en el momento de mayor presión emocional de Jesús, revelando que su relación con Jehová era su ancla en la prueba más severa — un modelo directo para nosotros.
