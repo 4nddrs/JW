@@ -1,3 +1,4 @@
+[1A - Qué te espera en la Escuela del Servicio de Precursor](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102014863&par=2)
 #### 📌 PUNTOS CLAVE DE LA INTRODUCCIÓN
 
 - Jehová es el Gran Instructor por excelencia, y lleva enseñando desde antes de la rebelión de Adán.
