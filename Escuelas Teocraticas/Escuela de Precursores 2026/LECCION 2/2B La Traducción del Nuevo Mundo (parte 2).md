@@ -42,4 +42,17 @@
 	- La nota revela que se trata de un modismo griego antiguo, no una actitud irrespetuosa. 
 	- Así, conocer el sentido literal nos ayuda a entender _por qué_ los traductores eligieron una frase más natural, sin perder el trasfondo del idioma original.
 ##### • Significados e información adicional
+
+- **RESPUESTA 1 — Directa**
+	- Las notas de "Significados e información adicional" enriquecen la comprensión del texto explicando datos que van más allá de la traducción: 
+		- medidas antiguas
+		- costumbres
+		- significado de nombres 
+		- y expresiones culturales. 
+	- Por ejemplo, en Jueces 7:19 la TNM dice que Gedeón llegó al campamento "cuando empezaba la segunda vigilia de la noche", y la nota aclara exactamente a qué hora del día correspondía ese turno en el sistema israelita antiguo.
+
+- **RESPUESTA 2 — Complementaria**
+	- Estas notas también ayudan a entender expresiones que hoy podrían leerse de forma incorrecta. 
+	- En Génesis 25:8, cuando se dice que Abrahán "fue reunido con su pueblo" al morir, la expresión no puede significar simplemente que fue enterrado con sus antepasados, porque ninguno de los parientes de Abrahán, excepto su esposa, fue enterrado en la cueva de Macpela.
+	- Sin la nota explicativa, el lector moderno podría pasar por alto la profundidad de esa frase. Así, este tipo de notas convierte la lectura bíblica en un estudio más rico y preciso.
 ##### Cuando hay una nota para la misma palabra varias veces en la misma página, se unen en una sola nota
