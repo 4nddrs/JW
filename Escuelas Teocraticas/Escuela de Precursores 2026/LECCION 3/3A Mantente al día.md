@@ -313,3 +313,305 @@
 	- **Contexto — Tabaco, 1973:** La decisión de expulsar a quienes no abandonaran el tabaco marcó un punto de inflexión importante; demostró que las aclaraciones morales no son sugerencias sino estándares que Cristo aplica para refinar y purificar a su congregación como organización limpia ante Jehová.
 	
 	- **Valor de la Referencia — Efes. 5:25-27:** Pablo compara el proceso de purificación de la congregación con el cuidado de un esposo por su esposa, revelando que cada aclaración moral no es disciplina fría sino expresión del amor de Cristo por sus discípulos, quien quiere presentarlos "gloriosos, sin mancha ni arruga".****
+
+#### ¿Cómo nos beneficia comprender bien los siguientes textos? 
+##### • 1 Corintios 5:9-13
+
+- **RESPUESTA 1 — Directa**
+	- Comprender bien este texto nos beneficia porque aclara con precisión a quién debemos evitar y por qué. 
+	- Pablo no pedía aislarse del mundo sino separarse de quien, llamándose hermano, persiste en el pecado sin arrepentimiento. 
+	- Esta distinción protege la pureza moral de la congregación sin convertirnos en personas que huyen de todo contacto con personas del mundo.
+
+- **RESPUESTA 2 — Complementaria**
+	- Las aclaraciones progresivas sobre este texto también nos benefician al revelar las tres razones claras para la expulsión: 
+		- no deshonrar el nombre de Jehová
+		- proteger a la congregación del efecto contaminante del pecado
+		- animar al pecador a arrepentirse. 
+		
+	- Entender estos tres propósitos nos ayuda a ver la expulsión no como castigo cruel sino como un acto de justicia y misericordia a la vez.
+
+- **ANÁLISIS**
+	- **Contexto — Evolución del procedimiento:** El camino desde los "tribunales de iglesia" de 1904 hasta el proceso actual refleja un refinamiento progresivo que fue centralizando la responsabilidad judicial en ancianos capacitados, eliminando el riesgo de que toda la congregación se convirtiera en juez y protegiendo la dignidad de todos los involucrados.
+	
+	- **Ni siquiera coman — v.11:** Esta expresión en el contexto cultural grecorromano era extremadamente fuerte; compartir una mesa significaba aprobación y comunión plena. Pablo usó deliberadamente esta imagen para subrayar que mantener relación social normal con el expulsado contradice el propósito restaurador de la disciplina.
+	
+	- **Valor de la Referencia — 2 Juan 10:** La aclaración de 1892 que vinculó la expulsión con negar el rescate de Cristo establece desde temprano que la pureza en la congregación y la pureza moral son inseparables; ambas protegen la identidad del pueblo de Jehová como congregación limpia ante su nombre.
+##### • Efesios 4:19
+
+- **RESPUESTA 1 — Directa**
+	- Comprender bien este texto nos beneficia porque nos ayuda a identificar con precisión dos categorías distintas de conducta impura: 
+	- la "conducta relajada"
+		- Que implica descaro e insolencia ante las normas de Dios.
+	- la "inmundicia con avidez"
+		- Que refleja entrega deliberada y repetida al pecado. 
+		
+	* Esta distinción permite a los ancianos tratar cada caso con justicia y discernimiento en lugar de aplicar una vara uniforme.
+
+- **RESPUESTA 2 — Complementaria**
+	- También nos beneficia personalmente porque nos ayuda a reconocer el peligro de la gradualidad en el pecado. 
+	- Nadie llega a "practicar toda clase de impureza con avidez" de repente; es un proceso de pérdida progresiva del sentido moral. 
+	- Entender esto nos motiva a cortar el pecado desde sus etapas iniciales, antes de que la conciencia se embote y la conducta se vuelva habitual e incontrolable.
+
+- **ANÁLISIS**
+	- **Conducta relajada — aselgeia:** El término griego describe no solo el acto pecaminoso sino la actitud que lo acompaña: descaro, desvergüenza y desprecio por los límites divinos. Por eso dos personas pueden cometer un acto similar pero recibir tratamiento distinto según la actitud del corazón que lo motivó.
+	
+	- **Contexto — Inmundicia con avidez:** La palabra griega _pleonexia_ traducida "avidez" implica un deseo insaciable de tener más, aplicada aquí a la impureza sexual. Esto explica por qué conductas como ver pornografía de forma habitual y secreta durante años pueden constituir inmundicia grave aunque no haya la actitud descarada característica de la conducta relajada.
+	
+	- **Valor de la Referencia:** La clarificación sobre estos términos protege a la congregación en dos direcciones simultáneas: evita que casos graves queden sin atención judicial por no encajar en una definición estrecha, y protege a hermanos de ser juzgados severamente por conductas que solo requieren consejo y apoyo pastoral.
+##### • Romanos 12:9
+
+- **RESPUESTA 1 — Directa**
+	- Comprender bien este texto nos beneficia porque establece que el amor genuino exige detestar activamente el mal, no solo evitarlo pasivamente. 
+	- Aplicado al abuso de menores, significa que no basta con no cometer ese acto; debemos aborrecerlo como lo aborrece Jehová y no tolerarlo en la congregación. 
+	- Un amor hipócrita buscaría excusas o encubrimientos; el amor verdadero protege a las víctimas sin titubear.
+
+- **RESPUESTA 2 — Complementaria**
+	- Este texto también nos beneficia al dejar claro que proteger a un abusador de las consecuencias legales de sus actos sería precisamente el tipo de amor hipócrita que Pablo condena. 
+	- Los ancianos no están para encubrir pecados graves sino para defender a los inocentes. 
+	- Apegarse a lo bueno incluye cooperar con las autoridades, pues el pecador debe cosechar lo que ha sembrado según Gálatas 6:7.
+
+- **ANÁLISIS**
+	- **Detestar — griego apostygéo]** Este término expresa un rechazo intenso y activo, no simple desaprobación pasiva. Pablo lo usa deliberadamente para que los cristianos desarrollen hacia el mal la misma aversión profunda que tiene Jehová, quien según el Salmo 5:4-6 detesta a quienes practican la maldad.
+	
+	- **Contexto — Abuso como pecado múltiple:** El material estudiado revela que el abuso de menores no es un pecado simple sino cuádruple: contra la víctima, contra la congregación, contra las autoridades y sobre todo contra Jehová. Entender esta dimensión múltiple intensifica el rechazo que Romanos 12:9 nos pide desarrollar.
+	
+	- **Valor de la Referencia:** La conexión entre "amor no hipócrita" y el trato del abuso protege a la congregación de una trampa sutil: creer que ser compasivos con el agresor equivale a amor cristiano. El texto deja claro que el verdadero amor prioriza al inocente y condena sin ambigüedad lo que Jehová mismo aborrece.
+
+#### Cambios en la organización. Explica algunos cambios que cumplen lo que dice Isaías 60:17
+
+- **RESPUESTA 1 — Directa**
+	- Desde 1914 el Rey ha ido perfeccionando progresivamente la organización de sus súbditos. 
+	- Cambios como adoptar el nombre Testigos de Jehová en 1931, pasar del voto popular al nombramiento bíblico en 1938, y establecer cuerpos de ancianos en 1972 reflejan exactamente lo que Isaías predijo: supervisores de paz y encargados de justicia, no estructuras humanas improvisadas sino organización fundamentada y dirigida por Jehova y Jesus.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo notable es que cada cambio representó un avance cualitativo, como el oro supera al cobre. 
+	- Por ejemplo, pasar en 1972 de un solo siervo de congregación a un cuerpo de ancianos distribuyó el peso del pastoreo entre varios hermanos calificados, reduciendo el riesgo de errores individuales y reflejando mejor el modelo bíblico de liderazgo colectivo que el propio Jesús estableció en el primer siglo.
+
+- **ANÁLISIS**
+	- **Oro en vez de cobre — Is. 60:17:** El contraste no implica que lo anterior era malo sino que cada etapa era apropiada para su momento; Jehová fue elevando el estándar gradualmente conforme su pueblo maduraba espiritualmente y la obra del Reino se expandía globalmente.
+	
+	- **Contexto — 1919 a 1976:** Los cambios organizacionales no fueron simultáneos sino espaciados estratégicamente a lo largo de décadas, evidenciando que la reorganización siguió el mismo principio de Proverbios 4:18: luz progresiva adaptada a la capacidad y necesidad de cada época.
+	
+	- **Valor de la Referencia — 1 Ped. 5:2:** El llamado a pastorear "no por obligación sino de buena gana" fue el fundamento espiritual del cambio de 1972, revelando que detrás de cada ajuste organizacional no hay burocracia sino el deseo de Jehová de que su rebaño sea atendido por hombres motivados por amor genuino y no por posición.
+
+#### ¿Cómo demuestra lo que se publica en el sitio jw.org que el esclavo es fiel y prudente?
+
+- **RESPUESTA 1 — Directa**
+	- JW.ORG demuestra la fidelidad del esclavo por la amplitud y calidad del alimento espiritual que distribuye. 
+	- Disponible en cientos de idiomas, con contenido bíblico en casi 70 lenguajes de señas y material para matrimonios, padres, jóvenes e interesados, el sitio garantiza que nadie quede sin recibir alimento al tiempo apropiado, sin importar su idioma, edad o situación personal.
+
+- **RESPUESTA 2 — Complementaria**
+	- También demuestra prudencia en la forma estratégica en que está diseñado. 
+	- Todas las publicaciones del kit de enseñanza dirigen a las personas a jw.org, convirtiendo cada conversación en el ministerio en una puerta de entrada a un recurso ilimitado. 
+	- Esa visión práctica de alcanzar a personas de otros idiomas o con necesidades específicas mediante un solo sitio refleja la sabiduría del canal que Jesús usa para alimentar a sus ovejas.
+
+- **ANÁLISIS**
+	- **700,000 visitas diarias:** Esta cifra no es un dato de marketing sino evidencia cuantificable del alcance global del alimento espiritual que el esclavo provee, cumpliendo a escala sin precedentes el principio de Mateo 24:45 de dar alimento "al tiempo apropiado" a los domésticos de todo el mundo.
+	
+	- **Contexto — Kit de enseñanza y jw.org:** El diseño del ministerio moderno integra publicaciones físicas y digitales de forma complementaria, evidenciando que el esclavo fiel adapta los métodos de distribución del alimento espiritual a las herramientas disponibles en cada época sin alterar el contenido de la verdad.
+	
+	- **Valor de la Referencia — Lenguajes de señas:** Incluir casi 70 lenguajes de señas revela que el esclavo fiel no solo alimenta a quienes tienen acceso fácil a la verdad, sino que hace un esfuerzo deliberado por llegar a quienes otros ignorarían, reflejando el mismo espíritu inclusivo de Jesús que no dejaba a ninguna oveja sin atención.
+
+##### ¿Cómo has usado jw.org para... 
+###### • ... ayudar a tu familia? 
+- **RESPUESTA — Directa**
+	- jw.org nos permite estudiar juntos en familia sin importar el horario. 
+	- Acceder a videos, historias bíblicas ilustradas y artículos sobre crianza y matrimonio en cualquier momento nos ayuda a mantener la adoración del hogar fresca, variada y adaptada a las necesidades específicas de cada miembro.
+###### • ... ayudar a tus compañeros de predicación? 
+- **RESPUESTA — Directa**
+	- En el ministerio, cuando encontramos a alguien que habla otro idioma o tiene una necesidad específica, jw.org permite encontrar al instante la publicación adecuada en su idioma. 
+	- Eso nos hace más eficaces y nos evita quedar sin respuesta ante preguntas que el kit de enseñanza no cubre directamente.
+###### • ... fortalecer tu fe?
+- **RESPUESTA — Directa**
+	- Acceder a la Biblioteca en línea Watchtower y a los videos documentales me permite profundizar en temas bíblicos cuando surgen dudas o preguntas. 
+	- Ver cómo cada publicación armoniza con las Escrituras refuerza mi convicción de que detrás de este canal hay dirección divina, no criterio humano.
+
+### Mantente al día 
+#### ¿Qué cambios has tenido que hacer para mantenerte al día con las verdades de la Biblia, y cómo te ha ayudado eso en tu precursorado? 
+
+- **RESPUESTA 1 — Directa**
+	- Un cambio clave fue priorizar el estudio personal sobre otras actividades. Reservar tiempo fijo para leer La Atalaya y repasar las aclaraciones actualizadas me ha dado argumentos más sólidos en el ministerio. 
+	- Cuando estoy al día con la nueva luz, puedo responder preguntas con precisión y confianza en lugar de dudar o dar respuestas desactualizadas.
+
+- **RESPUESTA 2 — Complementaria**
+	- También tuve que cambiar mi actitud ante las aclaraciones: recibirlas con gratitud en lugar de resistencia. 
+	- Cada vez que el esclavo fiel actualiza un entendimiento, verlo como luz progresiva en lugar de contradicción me ha mantenido espiritualmente estable. 
+	- Esa estabilidad se nota en el precursorado porque puedo enseñar con convicción genuina, no solo repetir información de memoria.
+#### ¿Cómo han aumentado “tu paz” y “tu justicia”?
+
+- **RESPUESTA 1 — Directa**
+	- Mi paz ha aumentado porque entender mejor las verdades bíblicas elimina la incertidumbre. 
+	- Isaías 48:17 dice que Jehová nos enseña "por nuestro propio bien", y cada aclaración estudiada en esta lección lo confirma. 
+	- Saber que estoy siendo guiado por el canal correcto me da tranquilidad interior que ninguna circunstancia externa puede quitarme.
+
+- **RESPUESTA 2 — Complementaria**
+	- Mi justicia ha aumentado al aplicar las aclaraciones morales estudiadas. 
+	- Entender con precisión términos como _pornéia_ o los principios sobre la sangre me ha ayudado a tomar decisiones más firmes y coherentes. 
+	- Como dice Isaías 48:18, prestar atención a los mandamientos de Jehová convierte la justicia en algo tan constante y poderoso como las olas del mar, no algo intermitente.
+
+#### ¿Cómo demostramos que valoramos la guía de Dios cuando... 
+##### • ... mejoramos nuestras habilidades para conversar en la predicación? 
+
+- **RESPUESTA — Directa**
+	- Dedicar tiempo a preparar y practicar nuestras conversaciones demuestra que tomamos en serio el canal que Jehová usa para instruirnos. 
+	- No improvisar sino aplicar las sugerencias del ministerio teocrático es reconocer que la guía divina también abarca cómo comunicamos la verdad.
+
+##### • ... damos cursos bíblicos? 
+
+- **RESPUESTA — Directa**
+	- Conducir cursos con regularidad y usando las publicaciones del esclavo fiel demuestra confianza en el alimento espiritual provisto. 
+	- No sustituimos ese material por nuestras propias ideas sino que lo usamos fielmente, reconociendo que es Jehová quien enseña "por nuestro propio bien" a través de ese canal.
+##### • ... predicamos a quienes hablan otro idioma? 
+
+- **RESPUESTA — Directa**
+	- Usar jw.org para alcanzar a personas de otros idiomas demuestra que valoramos el esfuerzo del esclavo fiel por no dejar a ninguna oveja sin alimento. 
+	- Es reconocer que la guía de Dios no tiene barreras idiomáticas y que nosotros tampoco debemos ponerlas.
+##### • ... celebramos todas las semanas la adoración en familia? 
+
+- **RESPUESTA — Directa**
+	- Mantener la adoración del hogar semanal sin excusas demuestra que priorizamos la guía espiritual sobre cualquier otra actividad. 
+	- Es aplicar en casa el mismo principio del concilio de Jerusalén: 
+		- escuchar
+		- recibir la instrucción con alegría 
+		- y actuar en consecuencia.
+##### • ... cooperamos con los Comités de Enlace con los Hospitales? 
+
+- **RESPUESTA — Directa**
+	- Apoyar y respetar las decisiones de estos comités demuestra que confiamos en que la postura sobre la sangre viene de Jehová, no de criterio humano. 
+	- Cooperar activamente es la misma actitud de los hermanos del primer siglo que obedecieron las decisiones del cuerpo gobernante aunque implicaran sacrificio personal.
+##### • ... nos comportamos bien en las asambleas?
+
+- **RESPUESTA — Directa**
+	- Mantener una conducta ejemplar en las asambleas demuestra que entendemos que representamos el nombre de Jehová ante quienes nos observan. 
+	- Como aprendimos en esta lección, santificar ese nombre no es solo predicar sino reflejarlo en cada detalle de nuestra conducta pública y privada.
+
+#### ¿Qué nos enseña la forma en que la Palabra de Dios describe la parte celestial de la organización de Jehová?
+
+- **RESPUESTA 1 — Directa**
+	- Nos enseña que formamos parte de una organización universal inmensa y poderosa. 
+	- Las visiones de Isaías, Ezequiel, Daniel y Juan revelan que detrás de lo que vemos en la Tierra hay una organización celestial perfectamente dirigida por Jehová.
+	- Eso nos da confianza: no estamos solos ni dependemos solo de esfuerzo humano.
+
+- **RESPUESTA 2 — Complementaria**
+	- También nos enseña que la organización de Jehová nunca se detiene. 
+	- El carruaje de Ezequiel que se movía a gran velocidad en cualquier dirección, y el trono de Daniel con ruedas de fuego, ilustran que los propósitos divinos avanzan sin obstáculos. 
+	- Contemplar esa realidad nos impulsa a actuar como Isaías: cuando vio la gloria de Jehová no se paralizó sino que respondió sin dudar "¡Aquí estoy, envíame a mí!".
+
+- **ANÁLISIS**
+	- **Carruaje celestial — Ezeq. 1:15-21:** La imagen del carruaje que cambia de dirección instantáneamente y se desplaza a grandes distancias simboliza la capacidad de Jehová de dirigir su organización con precisión absoluta ante cualquier circunstancia, algo que ninguna organización humana puede replicar por sus propios medios.
+	
+	- **Anciano de Días — Dan. 7:9:** El trono con ruedas de fuego no es decorativo; comunica que Jehová no es un gobernante estático sino uno en movimiento activo, cumpliendo sus propósitos con urgencia y poder, lo que refuerza nuestra confianza en que cada aclaración y cambio organizacional forma parte de un plan perfectamente controlado.
+	
+	- **Valor de la Referencia — Apoc. 4:8-11:** El hecho de que los seres celestiales alaben a Jehová "constantemente, día y noche" establece que el servicio incansable no es una expectativa solo para los humanos sino el estándar de toda la organización universal, motivándonos a dar lo mejor de nosotros en la predicación y la adoración.
+
+#### ¿Qué actitud nos ayudará a seguir en el camino de la luz progresiva?
+
+- **RESPUESTA 1 — Directa**
+	- La actitud que necesitamos es la de Pedro: confianza plena en Jehová aunque no lo entendamos todo de inmediato. 
+	- Pedro no comprendió completamente las palabras de Jesús sobre comer su carne, pero no se fue "a las cosas de atrás". 
+	- Sabía que Jehova le daría iluminación con el tiempo y eso fue suficiente para quedarse y seguir adelante.
+
+- **RESPUESTA 2 — Complementaria**
+	- También necesitamos la actitud de los bereanos: recibir las aclaraciones con prontitud de ánimo y examinar las Escrituras para entender las razones bíblicas detrás de cada cambio. 
+	- No basta con aceptar pasivamente; hay que estudiar activamente. 
+	- Esa combinación de humildad para recibir y diligencia para examinar es lo que mantiene nuestra fe sólida ante cualquier ajuste doctrinal.
+
+- **ANÁLISIS**
+	- **Se fueron a las cosas de atrás — Juan 6:66:** El contraste entre quienes se fueron y Pedro que se quedó no fue de inteligencia sino de actitud del corazón. Los que se fueron priorizaron su propio entendimiento limitado sobre la confianza en Jesús, la misma trampa que enfrenta cualquiera que rechaza la nueva luz por no comprenderla inmediatamente.
+	
+	- **Bereanos — Hech. 17:11:** La expresión "suma prontitud de ánimo" en griego implica una disposición entusiasta y sin prejuicios para recibir nueva información, combinada con verificación cuidadosa en las Escrituras, demostrando que la fe madura nunca es ciega sino informada y examinada.
+	
+	- **Valor de la Referencia — 1 Cor. 2:10-13:** Pablo subraya que las cosas profundas de Dios solo se comprenden mediante el espíritu santo, no mediante razonamiento humano, lo que explica por qué resistirse a la nueva luz equivale en realidad a resistirse a la guía del espíritu mismo que Jehová usa para iluminar progresivamente a su pueblo.
+
+##### ¿Cómo nos ayudará esa actitud a reaccionar bien ante un cambio que afecte a alguna costumbre o tradición que nos gusta mucho?
+
+- **RESPUESTA 1 — Directa**
+	- La actitud de confiar en Jehová aunque no lo entendamos todo nos protege de tropezar como los fariseos. 
+	- Ellos no rechazaron a Jesús por falta de información sino por aferrarse a sus tradiciones y costumbres.
+	- Si cultivamos un amor profundo por las leyes de Dios por encima de cualquier preferencia personal, ningún cambio doctrinal nos tomará por sorpresa ni nos hará titubear.
+
+- **RESPUESTA 2 — Complementaria**
+	- También nos ayuda recordar la advertencia de Isaías 29:13: honrar a Jehová de labios para afuera mientras el corazón se aferra a tradiciones humanas es precisamente lo que él rechaza. 
+	- Cuando llega un cambio que afecta algo que nos gusta, la pregunta honesta no es "¿por qué cambian esto?" sino "¿qué dice la Palabra de Dios?". 
+	- Esa disposición es la que mantiene el corazón alineado con Jehová y no con las costumbres.
+
+- **ANÁLISIS**
+	- **Tropezaron — Mat. 11:16-19:** El verbo griego _skandalízo_ implica una piedra que hace caer al caminante; Jesús lo usó para describir a quienes se ofendieron porque no cumplió sus expectativas. Hoy el mismo peligro existe cuando permitimos que nuestras expectativas o preferencias personales sean el estándar en lugar de las Escrituras.
+	
+	- **Contexto — Fariseos vs. bereanos:** El contraste entre ambos grupos es actitudinal, no intelectual. Los fariseos tenían amplio conocimiento bíblico pero corazones cerrados; los bereanos tenían menos conocimiento pero corazones abiertos. La diferencia determinó quién recibió la nueva luz y quién la rechazó, evidenciando que la humildad del corazón es más determinante que la capacidad intelectual.
+	
+	- **Valor de la Referencia — Sal. 119:165:** "Los que aman tu ley tienen mucha paz y nada los hace tropezar" es la respuesta directa de las Escrituras a esta pregunta; el amor genuino por la Palabra de Dios actúa como amortiguador espiritual que neutraliza cualquier resistencia emocional ante los cambios que Jehová introduce progresivamente.
+
+#### ¿Cómo podemos demostrar que agradecemos la luz espiritual que recibimos?
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos gratitud viviendo en armonía con la luz que recibimos. 
+	- El Salmo 97:11 dice que esa luz resplandece para los justos, es decir, para quienes actúan conforme a ella. 
+	- No basta con recibir las aclaraciones con alegría momentánea; la gratitud genuina se demuestra aplicando cada nueva verdad en nuestra conducta, predicación y adoración diaria de forma consistente.
+
+- **RESPUESTA 2 — Complementaria**
+	- También demostramos gratitud compartiendo esa luz con otros.
+	- A lo largo de esta lección vimos cómo cada aclaración, desde el templo espiritual hasta los principios morales, tiene valor práctico para las personas que nos rodean. 
+	- Usar jw.org, dar cursos bíblicos y mejorar nuestras habilidades en el ministerio son formas concretas de decirle a Jehová: "Aprecio esta luz y quiero que otros también la reciban."
+
+- **ANÁLISIS**
+	- **Luz para los justos — Sal. 97:11:** En hebreo el término _zarúa_ traducido "ha resplandecido" implica luz sembrada como semilla que crece gradualmente, conectando perfectamente con el principio de Proverbios 4:18: la luz progresiva no es un destello instantáneo sino algo que se cultiva y desarrolla con el tiempo en quienes la reciben con corazón recto.
+	
+	- **Contexto — Alegría como evidencia:** La "alegría para las personas de corazón recto" no es superficial sino el resultado natural de vivir alineados con la voluntad de Jehová. A lo largo de esta lección vimos ese patrón repetido: los hermanos de Antioquía "se sintieron felices" al recibir las instrucciones del primer siglo, la misma respuesta que Jehová espera de nosotros hoy ante cada nueva luz.
+	
+	- **Valor de la Referencia — Hilo conductor de la lección:** Este versículo final funciona como cierre perfecto de todo lo estudiado: la luz comenzó con Jehová como su origen, fue revelada progresivamente por Jesús y el espíritu santo, fue distribuida fielmente por el esclavo fiel, y ahora resplandece en quienes la reciben con gratitud y corazón recto, completando el ciclo de la luz espiritual desde su fuente hasta su fruto.
+
+#### En vista de los cambios y aclaraciones que se hacen, ¿cómo piensas mejorar tu estudio personal de la Biblia?
+
+- **RESPUESTA 1 — Directa**
+	- Quiero estudiar con mayor propósito, examinando las razones bíblicas detrás de cada aclaración en lugar de solo leer superficialmente. 2 Pedro 1:19 compara la palabra profética con una lámpara en la oscuridad. 
+	- Una lámpara solo es útil si nos acercamos a ella. 
+	- Mejorar mi estudio significa acercarme más a esa lámpara, no conformarme con el resplandor desde lejos.
+
+- **RESPUESTA 2 — Complementaria**
+	- También quiero estudiar recordando siempre que ninguna profecía procede de interpretación personal según 2 Pedro 1:20, 21. 
+	- Eso me motiva a apoyarme en el canal que Jehová usa en lugar de confiar en mis propias conclusiones. 
+	- Mejorar mi estudio implica leer las publicaciones del esclavo fiel con la misma actitud humilde que examinamos hoy: prontitud de ánimo y verificación cuidadosa en las Escrituras.
+
+- **ANÁLISIS**
+	- **Lámpara en lugar oscuro — 2 Ped. 1:19:** La imagen implica que sin esa luz el entorno es oscuridad total, no penumbra. Pedro quiere que sus lectores entiendan que prescindir de la palabra profética no es quedarse con menos luz sino quedar completamente a oscuras, subrayando la urgencia de un estudio personal serio y constante.
+	
+	- **Impulsados por espíritu santo — v.21:** Este detalle confirma que el origen divino de las Escrituras es la razón por la que ninguna interpretación individual puede ser el estándar final, conectando directamente con el principio estudiado hoy: la luz progresiva viene de Jehová a través de su espíritu, no de razonamiento humano por brillante que parezca.
+	
+	- **Valor de la Referencia — Cierre de lección:** 2 Pedro 1:19-21 es el fundamento teológico de todo lo estudiado hoy. Cada aclaración sobre el templo espiritual, Gog de Magog, el esclavo fiel o los principios morales fue posible porque hombres impulsados por el espíritu escribieron una Palabra que sigue iluminando progresivamente a quienes la estudian con corazón recto y humilde.
+
+##### ¿Cómo hacemos brillar nuestra luz?
+
+- **RESPUESTA 1 — Directa**
+	- Hacemos brillar nuestra luz mediante dos cosas inseparables: 
+		- la predicación
+		- la buena conducta. 
+		
+	- Mateo 5:16 conecta ambas directamente: 
+		- las buenas obras visibles llevan a la gente a glorificar al Padre. 
+		
+	- No basta con predicar si la conducta contradice el mensaje, ni basta con tener buena conducta si guardamos silencio. 
+	- La lámpara debe estar en el candelero, no escondida bajo una canasta.
+
+- **RESPUESTA 2 — Complementaria**
+	- También hacemos brillar nuestra luz cumpliendo el mandato de Marcos 13:10: predicar las buenas noticias en todas las naciones. 
+	- Cada conversación en el ministerio, cada curso bíblico, cada uso de jw.org para alcanzar a alguien de otro idioma es poner la lámpara en alto. 
+	- La luz que Jehová nos ha dado progresivamente a lo largo de esta lección no es para guardarla sino para compartirla con todos los que están en casa.
+
+- **ANÁLISIS**
+	- **Luz del mundo — Mat. 5:14:** Jesús usó el artículo definido "la" luz, no "una" luz, indicando que sus discípulos no son simplemente portadores de iluminación sino el canal designado para alumbrar a un mundo en oscuridad espiritual, lo que convierte la predicación en responsabilidad ineludible y no en opción personal.
+	
+	- **Contexto — Candelero vs. canasta:** El contraste no es entre luz y oscuridad sino entre luz visible y luz oculta, sugiriendo que el peligro real no es perder la verdad sino no compartirla. Aplicado a esta lección: toda la luz progresiva recibida sobre el templo espiritual, el esclavo fiel o los principios morales debe traducirse en conversaciones reales con personas reales.
+	
+	- **Valor de la Referencia
+	#### ¿Por qué quieres seguir andando por el camino de la luz espiritual que brilla cada vez más?
+	:** La conexión entre buenas obras y gloria al Padre establece que hacer brillar nuestra luz no es autopromoción sino teocrático: el objetivo final no es que la gente admire a los Testigos sino que reconozca a Jehová detrás de su conducta y mensaje, completando así el círculo de la santificación del nombre divino que fue el tema central de esta lección.
+
+#### ¿Por qué quieres seguir andando por el camino de la luz espiritual que brilla cada vez más?
+
+- **RESPUESTA — Directa**
+	- Quiero seguir en ese camino porque cada aclaración estudiada hoy me confirma que Jehová conoce mis necesidades y me guía con sabiduría y amor. 
+	- Andar en su luz no es una carga sino un privilegio que me da paz, propósito y la certeza de que estoy del lado correcto, el único que tiene dichos de vida eterna.
+
+
+
