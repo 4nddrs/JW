@@ -201,3 +201,115 @@
 	- **Contexto — Año 1971:** Esta aclaración llegó mediante el estudio comparativo cuidadoso de Hebreos y Efesios, evidenciando que la nueva luz no provino de especulación sino de analizar detenidamente pasajes que aparentemente se contradecían, confirmando el principio de Proverbios 4:18.
 	
 	- **Valor de la Referencia — Heb. 9:9:** La frase "para el tiempo señalado que está aquí ahora" fue la clave textual que reveló que el templo espiritual era una realidad presente desde el primer siglo, no una estructura futura en construcción, lo que reorientó completamente el entendimiento sobre el papel de los ungidos.
+
+#### ¿Cómo nos han ayudado las aclaraciones que se han hecho sobre los siguientes textos? 
+##### • Ezequiel 38:2, 4
+
+- **RESPUESTA 1 — Directa**
+	- Las aclaraciones nos ayudaron a identificar correctamente quién es Gog de Magog. 
+	- Antes se creía que era el Diablo tras ser expulsado del cielo, pero al comparar los textos bíblicos se comprendió que no puede ser un ser espiritual, pues Ezequiel dice que Gog será comido por aves de rapiña y enterrado en la Tierra, algo imposible para Satanás.
+
+- **RESPUESTA 2 — Complementaria**
+	- La aclaración también nos ayuda a ver el panorama completo del ataque final. 
+	- Gog de Magog no es un individuo sino una coalición de naciones que atacará al pueblo de Dios, el mismo evento descrito como la guerra de Armagedón. 
+	- Saber esto nos prepara espiritualmente y nos da confianza en que Jesucristo, como Rey reinante, destruirá esa coalición y salvará a su pueblo.
+
+- **ANÁLISIS**
+	- **Gog de Magog — Ezeq. 38:2:** El nombre "Gog" no designa a un individuo específico sino a una entidad colectiva hostil; su identificación como coalición de naciones armoniza con Revelación 16:14, que dice que "los reyes de toda la tierra" participarán en el ataque final de Armagedón.
+	
+	- **Contexto — Aclaración progresiva:** Esta corrección doctrinal llegó mediante la comparación cuidadosa de Ezequiel, Daniel y Revelación, demostrando nuevamente el principio de Proverbios 4:18: la luz se va aclarando al estudiar las Escrituras con diligencia y sin aferrarse a entendimientos anteriores.
+	
+	- **Valor de la Referencia — Rev. 20:8:** El hecho de que Revelación use "Gog y Magog" para describir a los rebeldes al final del milenio confirma que el nombre funciona como símbolo de rebelión organizada contra Jehová, aplicable a dos momentos distintos pero con el mismo resultado: destrucción eterna.
+##### • Gálatas 5:22, 23
+
+- **RESPUESTA 1 — Directa**
+	- La aclaración nos ayudó a entender que las nueve cualidades de Gálatas 5:22, 23 no son una lista cerrada ni exhaustiva. 
+	- Pablo no pretendía incluir todas las cualidades que el espíritu puede ayudarnos a desarrollar, sino dar ejemplos representativos.
+	- Esto nos libera de pensar que con cultivar solo esas nueve cualidades ya somos cristianos completos y maduros.
+
+- **RESPUESTA 2 — Complementaria**
+	- Esta aclaración amplía nuestra meta de crecimiento espiritual. 
+	- Al comparar Gálatas con Efesios 5:9 y 1 Timoteo 6:11, vemos que cualidades como la justicia, la devoción a Dios, el aguante y la verdad también forman parte del fruto que el espíritu nos ayuda a cultivar. 
+	- Nos motiva a seguir desarrollando la nueva personalidad sin conformarnos con una lista mínima.
+
+- **ANÁLISIS**
+	- **Fruto — Gál. 5:22:** En griego, _karpós_ aparece en singular, sugiriendo que estas cualidades forman una unidad orgánica interconectada, no virtudes independientes que se desarrollan por separado, lo que explica por qué Pablo nunca pretendió hacer una lista exhaustiva sino ilustrativa.
+	
+	- **Contexto — Comparación de listas paulinas:** Pablo escribió a distintas congregaciones con necesidades específicas, por lo que adaptó sus listas de cualidades según el contexto, evidenciando que ninguna lista individual era definitiva sino parte de un cuadro más amplio de madurez cristiana.
+	
+	- **Valor de la Referencia — Efes. 4:24:** La meta final no es dominar una lista de nueve cualidades sino "ponerse la nueva personalidad creada según la voluntad de Dios", un estándar dinámico y en constante crecimiento que solo es posible con la guía continua del espíritu santo.
+##### • Mateo 6:9
+
+- **RESPUESTA 1 — Directa**
+	- La aclaración más significativa fue reconocer que el nombre de Jehová necesita ser vindicado. 
+	- Antes se enseñaba que no era necesario orar por su vindicación porque nadie cuestionaba su derecho a llevar ese nombre. 
+	- Pero en 2017 se aclaró que su reputación sí ha sido desprestigiada desde Edén y que es correcto orar pidiendo que sea limpiada.
+
+- **RESPUESTA 2 — Complementaria**
+	- También se aclaró que santificar el nombre de Jehová va más allá de hablar de su soberanía. 
+	- Implica destacar sus atractivas cualidades personales para que la gente lo ame y le sea leal voluntariamente. 
+	- Además, nuestra conducta íntegra y nuestra enseñanza son formas prácticas y diarias de contribuir a que su nombre sea tratado como santo.
+
+- **ANÁLISIS**
+	- **Nombre — Mat. 6:9:** En hebreo y griego bíblico, "nombre" no es solo una etiqueta sino que abarca la reputación, el carácter y todo lo que la persona representa. Por eso santificar el nombre de Jehová equivale a restaurar y honrar todo lo que él es ante la creación inteligente.
+	
+	- **Contexto — Reunión anual 2017:** Esta aclaración llegó institucionalmente, no por debate académico, evidenciando que el Cuerpo Gobernante continúa el mismo patrón del primer siglo: recibir nueva luz y comunicarla con humildad y claridad a todas las congregaciones.
+	
+	- **Valor de la Referencia — יהוה aparece 7,216 veces:** La frecuencia del nombre divino en las Escrituras subraya que su santificación no es un tema secundario sino el hilo conductor de toda la Biblia, confirmando que la petición de Mateo 6:9 es la más fundamental de toda oración cristiana.
+
+#### ¿Qué efecto ha tenido en ti la explicación actualizada sobre el esclavo fiel?
+
+- **RESPUESTA 1 — Directa**
+	- La explicación actualizada me da mayor claridad y confianza. 
+	- Saber que el esclavo fiel no empezó a cumplirse en el Pentecostés del año 33 sino después de 1914 ayuda a entender mejor el momento en que vivimos. 
+	- Identificar con precisión quién nos alimenta espiritualmente fortalece mi confianza en el medio que Jesús mismo designó para estos últimos días.
+
+- **RESPUESTA 2 — Complementaria**
+	- Me produce gratitud genuina saber que tanto ungidos como otras ovejas somos "domésticos" que recibimos el mismo alimento espiritual al tiempo apropiado. 
+	- Lejos de crear distancia, esta aclaración me motiva a apoyar lealmente al Cuerpo Gobernante, reconociendo que incluso sus propios miembros se consideran humildemente domésticos como todos nosotros.
+
+- **ANÁLISIS**
+	- **Esclavo — singular, Mat. 24:45:** El uso del singular no fue accidental; refleja que el Cuerpo Gobernante actúa como una unidad indivisible que toma decisiones conjuntas, distinguiéndose de cualquier liderazgo individual o fragmentado que podría desviar la dirección espiritual.
+	
+	- **Contexto — 1914-1919:** El intervalo entre ambos nombramientos no fue arbitrario; representó un período de inspección, prueba y limpieza donde Jehová verificó la fidelidad de los Estudiantes de la Biblia antes de asignarles formalmente la responsabilidad de alimentar a los domésticos.
+	
+	- **Valor de la Referencia:** La advertencia sobre el "esclavo malo" siendo una condición hipotética, no una profecía cumplida, protege a los domésticos de caer en la trampa del escepticismo hacia el canal designado por Cristo, reafirmando que el esclavo fiel en conjunto ha demostrado su lealtad hasta hoy.
+
+#### ¿Cómo fortalecen tu fe y tu confianza en Jehová y en su organización las aclaraciones que se hacen de algunas enseñanzas?
+
+- **RESPUESTA 1 — Directa**
+	- Las aclaraciones fortalecen mi fe porque demuestran que Jehová sigue guiando activamente a su organización. 
+	- A lo largo de esta lección hemos visto cómo verdades sobre el templo espiritual, Gog de Magog, el fruto del espíritu y el esclavo fiel fueron corregidas con humildad y honestidad.
+	- Ninguna organización humana reconoce sus errores así; eso en sí mismo es evidencia de dirección divina.
+
+- **RESPUESTA 2 — Complementaria**
+	- También fortalecen mi confianza porque el patrón es consistente desde el primer siglo. 
+	- Como vimos en Hechos 15, los hermanos responsables escucharon, analizaron la evidencia y ajustaron su entendimiento sin aferrarse al orgullo. 
+	- Hoy el Cuerpo Gobernante sigue ese mismo patrón, lo que me da seguridad de que estoy siendo guiado por el mismo espíritu que ha dirigido al pueblo de Jehová a través de los siglos.
+
+- **ANÁLISIS**
+	- **Patrón consistente:** Desde el concilio de Jerusalén del año 49 hasta las aclaraciones modernas sobre el esclavo fiel en 2013 o el nombre de Jehová en 2017, el método es siempre el mismo: estudio cuidadoso, oración, humildad para corregir y comunicación fiel a todos los domésticos, evidenciando una mano invisible que dirige el proceso.
+	
+	- **Proverbios 4:18 como hilo conductor:** Cada aclaración estudiada en esta lección es una aplicación concreta de ese versículo; la luz no llegó de golpe sino gradualmente, confirmando que Jehová respeta nuestra capacidad de absorber verdad y nos guía a nuestro ritmo sin abandonarnos en la oscuridad.
+	
+	- **Valor acumulado de la lección:** El hecho de que las aclaraciones corrijan errores anteriores sin ocultar que existían demuestra integridad institucional, algo que Job 27:5 describe perfectamente: mantener la integridad incluso cuando es incómodo es la marca más sólida de un canal que realmente teme a Jehová.
+
+#### **Principios morales.** Explica qué aclaraciones han ayudado a los siervos de Jehová a dar gloria a su nombre tanto por lo que dicen como por lo que hacen
+
+- **RESPUESTA 1 — Directa**
+	- Las aclaraciones sobre inmoralidad sexual, alcohol, tabaco y sangre han ido refinando progresivamente la conducta del pueblo de Jehová. 
+	- Cada una llegó en el momento oportuno para contrarrestar los ataques de Satanás. 
+	- No fueron restricciones arbitrarias sino orientación amorosa que protegió a los siervos de Dios de contaminaciones que dañaban su relación con Jehová y su testimonio ante el mundo.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo notable es que estas aclaraciones se anticiparon a problemas antes de que se volvieran crisis. 
+	- Por ejemplo, la postura sobre la sangre se consolidó en 1944, cuando las transfusiones apenas comenzaban a generalizarse. 
+	- Y hoy decenas de miles de profesionales médicos respetan nuestra postura. 
+	- Eso demuestra que detrás de cada aclaración hay sabiduría divina, no simple criterio humano.
+
+- **ANÁLISIS**
+	- **Pornéia — párr. 8:** Aclarar que este término griego incluye diversos actos inmorales más allá del coito fue crucial para cerrar puertas que algunos intentaban dejar abiertas, protegiendo a la congregación de razonamientos que justificaban conductas impuras bajo definiciones artificialmente estrechas.
+	
+	- **Contexto — Tabaco, 1973:** La decisión de expulsar a quienes no abandonaran el tabaco marcó un punto de inflexión importante; demostró que las aclaraciones morales no son sugerencias sino estándares que Cristo aplica para refinar y purificar a su congregación como organización limpia ante Jehová.
+	
+	- **Valor de la Referencia — Efes. 5:25-27:** Pablo compara el proceso de purificación de la congregación con el cuidado de un esposo por su esposa, revelando que cada aclaración moral no es disciplina fría sino expresión del amor de Cristo por sus discípulos, quien quiere presentarlos "gloriosos, sin mancha ni arruga".****
