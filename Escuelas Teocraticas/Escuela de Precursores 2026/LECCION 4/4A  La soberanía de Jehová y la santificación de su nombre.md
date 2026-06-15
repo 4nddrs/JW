@@ -332,3 +332,305 @@
 	- **Contexto / Entorno:** Pablo en Hechos 9 — era nuevo en la fe y ya enfrentaba persecución mortal; eso demuestra que la lealtad bajo presión no requiere años de experiencia sino disposición sincera de corazón desde el principio.
 	
 	- **Conexión con la lección:** Satanás acusó que nadie mantendría integridad bajo prueba (Job 1:9-11) — cada cristiano que permanece fiel bajo persecución desmiente esa acusación directamente y defiende la soberanía de Jehová ante todo el universo.
+
+### La sumisión a Dios debe salir del corazón 
+#### Analiza el principio de 1 Pedro 1:22 y comenta cómo puede aplicarse en las siguientes situaciones: 
+##### • Un hermano evita tener trato con otro porque es de otra raza, nacionalidad o posición social. 
+
+- **RESPUESTA 1 — Directa**
+	- Ese comportamiento contradice directamente el amor "intensamente desde el corazón" que pide 1 Pedro 1:22. 
+	- La palabra griega "intensamente" implica hacer un gran esfuerzo — y precisamente cuando alguien nos resulta diferente o difícil es cuando ese esfuerzo se necesita más. 
+	- La lealtad a Jehová incluye amar a quienes él acepta sin importar su origen.
+
+- **RESPUESTA 2 — Complementaria**
+	- Como vimos en Hechos 10:34, 35, Jehová no es parcial — acepta a personas de toda nación que le temen. 
+	- Evitar a un hermano por raza o posición social es en realidad aplicar un criterio diferente al de Jehová, lo que pone en evidencia que aún hay trabajo que hacer para alinear nuestro corazón con su soberanía.
+
+##### • En el Salón del Reino, una hermana se sienta lo más lejos posible de alguien porque le cae mal. O decide cambiarse de congregación por algo parecido. 
+
+- **RESPUESTA 1 — Directa**
+	- La _w21_ es muy clara: cuando alguien nos molesta no debemos centrarnos en sus faltas sino esforzarnos por verlo como Jehová lo ve. 
+	- Cambiarse de congregación por conflictos personales no resuelve el corazón — el problema viaja con uno. 
+	- La solución real es aplicar Efesios 4:1-3: sopортarse con amor y mantener el vínculo de la paz.
+
+- **RESPUESTA 2 — Complementaria**
+	- Jehová nos quiere tanto que mientras le seamos leales nada puede separarnos de él (Rom. 8:38, 39) — ese es el modelo a imitar. 
+	- Si Jehová no se aleja de nosotros por nuestras imperfecciones, ¿
+		- cómo podemos alejarnos de un hermano por las suyas? 
+	- La lealtad a la congregación es también lealtad a Jehová y a su organización.
+
+###### ANÁLISIS GENERAL
+
+- **Dato Clave / Palabra:** "Intensamente" en griego _ektenōs_ — literalmente sugiere músculo estirado al máximo; el amor fraternal genuino no es pasivo ni automático, requiere esfuerzo deliberado especialmente cuando los sentimientos no acompañan.
+
+- **Conexión con la soberanía:** Ambas situaciones reflejan en pequeño el mismo problema de la lección: querer hacer las cosas "a mi manera" en vez de someterme al principio que Jehová establece — la introducción preguntaba precisamente "¿estoy dispuesto a obedecer en todo en vez de hacer las cosas a mi manera?"
+
+- **Valor de la Referencia:** La _w21_ señala que debemos ver a los hermanos como Jehová los ve (1 Sam. 16:7) — él mira el corazón, no la nacionalidad, el carácter difícil ni la posición social; adoptar esa mirada es un acto concreto y poderoso de lealtad a su soberanía.
+
+#### Explica cómo demostramos que nos sometemos de corazón a la soberanía de Jehová en estas situaciones: 
+##### • Cuando leemos revistas, libros, etc. 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión eligiendo conscientemente material que edifica y evitando lo que contradice los principios de Jehová. 
+	- No se trata solo de lo que leemos sino de la actitud con que lo hacemos — preguntarnos 
+		- "¿esto me acerca o me aleja de Jehová?" 
+	- Es someter nuestra mente a su soberanía.
+
+- **RESPUESTA 2 — Complementaria**
+	- Como vimos en 2 Corintios 11:14, Satanás se disfraza de ángel de luz — mucho material impreso parece inofensivo o hasta educativo pero gradualmente moldea nuestra forma de pensar. 
+	- Priorizar las publicaciones de la organización sobre cualquier otro material es un acto concreto de lealtad intelectual a Jehová.
+##### • Cuando elegimos nuestro entretenimiento; por ejemplo, programas de televisión o películas. 
+
+- **RESPUESTA 1 — Directa**
+	- Someternos a la soberanía de Jehová significa aplicar sus normas incluso cuando nadie nos ve. 
+	- El entretenimiento moldea el corazón — elegir programas que glorifican valores contrarios a los de Jehová es en práctica dejar que otra "soberanía" dirija nuestra mente durante horas cada semana.
+
+- **RESPUESTA 2 — Complementaria**
+	- Romanos 1:24-28 mostró que Jehová no aprueba a quienes adoptan mentalidades que van en contra de lo que el enseña. 
+	- Eso nos recuerda que el entretenimiento no es neutral — lo que permitimos entrar en nuestra mente afecta directamente nuestra relación con Jehová y nuestra capacidad de mantenernos leales bajo presión.
+##### • Cuando usamos internet o nuestros dispositivos electrónicos. 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión aplicando los mismos principios en línea que aplicamos en persona. 
+	- Si algo no lo haríamos frente a un anciano de la congregación, tampoco debería hacerse en privado frente a una pantalla — la soberanía de Jehová no tiene zonas excluidas ni modo incógnito.
+
+
+- **RESPUESTA 2 — Complementaria**
+	- Internet es quizás el campo donde el disfraz de Satanás es más efectivo: 
+		- información atractiva
+		- entretenimiento accesible
+		- anonimato que crea la ilusión de libertad sin consecuencias. 
+		
+	- Recordar que Jehová lo ve todo (Sal. 139:1-4) y que dependemos completamente de él — como enseñó Hechos 17:28 — es el antídoto más poderoso.
+##### • Al tratar con nuestro esposo o esposa y el resto de nuestra familia cuando estamos en casa. 
+
+- **RESPUESTA 1 — Directa**
+	- En casa es donde la sumisión a Jehová se prueba más genuinamente porque nadie nos observa. 
+	- Aplicar Colosenses 3:18 y Efesios 6:1 en el trato familiar diario — con paciencia, respeto y amor — demuestra que nuestra obediencia a Jehová no es actuación pública sino convicción de corazón.
+
+- **RESPUESTA 2 — Complementaria**
+	- Como señala 1 Pedro 1:22, el amor fraternal intenso requiere esfuerzo deliberado — y eso aplica primero en casa. 
+	- Tratar bien al cónyuge o a los hijos cuando estamos cansados o bajo presión es uno de los actos más poderosos de sumisión a la soberanía de Jehová que podemos demostrar cotidianamente.
+##### • Al cumplir con nuestros deberes y asignaciones en la congregación. 
+
+- **RESPUESTA 1 — Directa**
+	- Cumplir con fidelidad nuestras asignaciones en la congregación — aunque sean pequeñas o nadie las note — es reconocer que Jehová dirige su organización y que cada función dentro de ella importa. 
+	- Como vimos en Hebreos 13:17, someternos con alegría a quienes nos dirigen beneficia directamente a quienes obedecen.
+
+- **RESPUESTA 2 — Complementaria**
+	- Hacer las asignaciones "a mi manera" o descuidarlas cuando no hay supervisión directa refleja la misma actitud de independencia que la introducción identificó como causa del caos en el mundo. 
+	- En cambio, cumplirlas con esmero demuestra que reconocemos la soberanía de Jehová detrás de cada arreglo en la organización.
+
+###### ANÁLISIS GENERAL
+
+- **Dato Clave / Patrón:** Las cinco situaciones cubren las mismas áreas que las preguntas de autoevaluación de la introducción:
+	- mente
+	- entretenimiento
+	- privacidad
+	- familia
+	- congregación
+	
+- Confirmando que someter a Jehová no es un acto único sino un estilo de vida integral y consistente.
+
+- **Conexión con la soberanía:** En cada punto subyace la misma decisión: ¿quién dirige esta área de mi vida, Jehová o yo? Jeremías 10:23 lo estableció con claridad — al hombre no le corresponde dirigir sus propios pasos, y estas cinco áreas son exactamente donde esa decisión se toma día a día.
+
+- **Valor práctico para el precursor:** Como señaló la introducción, el precursor enseña con su ejemplo que servir a Jehová no es una carga — cada una de estas decisiones cotidianas es una demostración viva ante la familia, los vecinos y los estudios de que someterse a la soberanía de Jehová produce una vida con propósito, paz y dirección genuina (Apoc. 4:11).
+
+#### ¿Qué podemos esperar si amamos y obedecemos de corazón lo que Jehová dice?
+
+- **RESPUESTA 1 — Directa**
+	- Podemos esperar dirección segura y vida plena. 
+	- Proverbios 4:11, 12 lo promete con claridad: 
+		- Jehová nos lleva por el camino de la sabiduría y cuando andamos nada estorbará nuestros pasos. 
+	- No es una vida sin desafíos, sino una vida donde Jehová mismo despeja el camino para quienes le obedecen de corazón.
+
+- **RESPUESTA 2 — Complementaria**
+	- También podemos esperar estabilidad duradera. 
+	- El versículo 13 dice "aférrate a la disciplina porque significa vida para ti" — no es un beneficio momentáneo sino permanente. 
+	- Como vimos a lo largo de la lección, Jehová es leal a quienes le son leales, y estas promesas de Proverbios son precisamente esa lealtad expresada en bendiciones concretas y tangibles.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Aférrate" aparece dos veces en el texto — en hebreo implica sujetar con fuerza algo que no se quiere soltar; Jehová usa esa imagen para describir la actitud correcta hacia su disciplina, exactamente como _jé·sedh_ describe una bondad que se adhiere a su objeto sin ceder.
+	
+	- **Contexto / Entorno:** Proverbios 4 es un padre transmitiendo sabiduría a su hijo — refleja el mismo patrón que hemos visto toda la lección: Jehová como Padre y Soberano que guía, protege y bendice a quienes confían en su dirección en vez de seguir su propio camino (Jer. 10:23).
+	
+	- **Conexión con la lección completa:** Este texto es el cierre perfecto de todo lo estudiado — la soberanía de Jehová no es una carga sino una garantía: quien se somete a ella recibe sabiduría, rectitud, pasos firmes y vida. Exactamente lo opuesto al caos que produce la independencia de Dios descrita en la introducción.
+### Maneras de someternos a la soberanía de Jehová en la congregación 
+#### De acuerdo con los siguientes textos, ¿qué oportunidades tienes de demostrar que te sometes a la soberanía de Jehová? 
+##### Mateo 24:14; 28:19, 20 
+
+- **RESPUESTA 1 — Directa**
+	- El ministerio de predicación es una de las oportunidades más claras y directas de demostrar sumisión a la soberanía de Jehová. 
+	- Participar activamente en predicar las buenas noticias del Reino y hacer discípulos no es una opción sino un mandato — obedecer ese mandato de corazón demuestra que reconocemos su autoridad suprema sobre nuestra vida.
+
+- **RESPUESTA 2 — Complementaria**
+	- Mateo 28:20 añade una dimensión preciosa: Jesús prometió estar con nosotros "todos los días hasta la conclusión del sistema." 
+	- Someternos a este mandato no es un sacrificio solitario sino una actividad respaldada directamente por Cristo. 
+	- Como precursores, cada hora de servicio es una declaración viva de que la soberanía de Jehová merece todo nuestro apoyo (Apoc. 4:11).
+##### Mateo 24:45-47 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión confiando en el medio que Jehová usa para alimentarnos espiritualmente y aplicando fielmente lo que el esclavo fiel y prudente nos provee. 
+	- Recibir con gratitud y obediencia ese alimento espiritual "al tiempo debido" es reconocer que Jehová dirige su organización y que podemos confiar plenamente en ella.
+
+- **RESPUESTA 2 — Complementaria**
+	- El texto también nos invita a reflexionar en nuestra propia actitud de servicio. 
+	- La felicidad prometida al esclavo encontrado "haciendo eso" aplica a cada uno de nosotros — ser hallados fieles en nuestras responsabilidades de la congregación y ministerio cuando Jesús venga
+	- Es la forma más concreta de demostrar sumisión activa a la soberanía de Jehová.
+##### 1 Corintios 5:9-13 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión respetando el arreglo de distanciarnos de la persona aunque sea emocionalmente difícil. 
+	- Pablo es claro: dejar de relacionarse con alguien expulsado de la congregación no es crueldad sino obediencia al principio que Jehová estableció para proteger la pureza de su pueblo. 
+	- Obedecer en este punto es confiar en que Jehová sabe más que nuestros sentimientos.
+
+- **RESPUESTA 2 — Complementaria**
+	- Este texto también nos recuerda que Jehová es el juez final — "Dios juzga a los de afuera." 
+	- Someternos a su soberanía significa no tomar en nuestras manos lo que le corresponde decidir a él, ni suavizar límites que él estableció. 
+	- Respetar ese arreglo incluso cuando involucra personas queridas es quizás una de las pruebas más exigentes de lealtad genuina.
+##### 1 Corintios 7:39 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión respetando el principio de casarse "en el Señor" — es decir, únicamente con alguien que sirva a Jehová. 
+	- Aunque el texto reconoce plena libertad para volver a casarse, esa libertad tiene un límite claro que Jehová establece. 
+	- Respetar ese límite de corazón, aunque haya opciones atractivas fuera, es un acto directo de sumisión a su soberanía.
+
+- **RESPUESTA 2 — Complementaria**
+	- Este principio aplica también antes del matrimonio. 
+	- Elegir pareja "en el Señor" desde el principio demuestra que sometemos una de las decisiones más importantes de la vida a la guía de Jehová en vez de hacerlo a nuestra manera. 
+	- Como vimos en Jeremías 10:23, al hombre no le corresponde dirigir sus propios pasos — y eso incluye decidir con quién compartir su vida.
+##### 1 Timoteo 5:17 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión honrando genuinamente a los ancianos que dirigen bien la congregación. 
+	- No es una honra por personalidad o amistad sino por el cargo que Jehová les ha confiado. 
+	- Reconocer su labor con gratitud y respeto es reconocer que Jehová dirige su organización a través de ellos.
+
+- **RESPUESTA 2 — Complementaria**
+	- La "doble honra" incluye también apoyo práctico y cooperación activa con su dirección. 
+		- Como vimos en Hebreos 13:17, los ancianos rendirán cuentas a Jehová por su cuidado — facilitar su trabajo con una actitud positiva y sumisa es una oportunidad concreta de demostrar que nos sometemos al arreglo que Jehová estableció para su congregación.
+##### Hebreos 10:23-25 
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos sumisión asistiendo fielmente a las reuniones sin dejarlas. 
+	- El texto es directo: "sin dejar de reunirnos." 
+	- Priorizar las reuniones sobre compromisos personales, cansancio o cualquier otra razón es una declaración práctica de que la soberanía de Jehová ocupa el primer lugar en nuestra agenda semanal.
+
+- **RESPUESTA 2 — Complementaria**
+	- También demostramos sumisión estando activamente pendientes de los demás para motivarlos — no solo asistir sino animar, edificar y fortalecer a los hermanos. 
+	- Como vimos en 1 Pedro 1:22, el amor intenso desde el corazón requiere esfuerzo deliberado, y las reuniones son precisamente el espacio que Jehová provee para ejercer ese amor de forma regular y organizada.
+
+###### ANÁLISIS GENERAL
+
+- **Patrón central:** Los seis textos cubren todas las dimensiones de la vida cristiana:
+	- ministerio
+	- organización
+	- disciplina
+	- matrimonio
+	- liderazgo
+	- reuniones
+	
+- Confirmando que la sumisión a la soberanía de Jehová no se limita a un área específica sino que abarca cada aspecto de nuestra vida sin excepción, exactamente como planteaban las preguntas de autoevaluación de la introducción.
+
+- **Dato Clave / Progresión:** Cada texto exige un nivel diferente de esfuerzo: 
+	- **Predicar** (tiempo y energía)
+	- **Confiar en el esclavo fiel** (humildad intelectual)
+	- **Respetar el guardar distancia con alguien que ya no es testigo** (control emocional)
+	- **Casarse en el Señor** (disciplina personal)
+	- **Honrar a los ancianos** (actitud del corazón)
+	- **Asistir a reuniones** (constancia práctica)
+	
+- Juntos forman un cuadro completo de lo que significa someterse _de corazón_ y no solo de palabra.
+
+- **Conexión con la lección completa:** Satanás acusó que nadie mantendría integridad bajo prueba (Job 1:9-11) — cada una de estas oportunidades es precisamente una respuesta viva a esa acusación. El precursor que predica fielmente, respeta el alejamiento aunque duela, elige pareja en el Señor y asiste a reuniones con regularidad, con estas acciones está demostrando ante todo el universo que la soberanía de Jehová merece sumisión total y genuina (Apoc. 4:11).
+
+#### ¿Cómo te beneficia personalmente someterte a la soberanía de Jehová en la congregación? 
+
+- **RESPUESTA 1 — Directa**
+	- Someterse a la soberanía de Jehová en la congregación nos da dirección segura y paz interior. 
+	- Como vimos en Proverbios 4:11, 12, Jehová lleva por el camino de la sabiduría a quienes obedecen — dentro de la congregación ese beneficio es tangible: 
+		- recibimos alimento espiritual
+		- protección
+		- y la guía del esclavo fiel precisamente cuando más lo necesitamos.
+
+- **RESPUESTA 2 — Complementaria**
+	- También nos beneficia construyendo relaciones fraternas genuinas y duraderas.
+	- Al someternos al arreglo de Jehová — honrando a los ancianos, asistiendo a reuniones y amando intensamente a los hermanos — experimentamos la paz abundante que prometió Isaías 54:13. 
+		- No es una paz que el mundo puede ofrecer sino la que viene exclusivamente de andar bajo la soberanía del único Soberano verdadero.
+#### ¿Cómo verás a la gente del territorio si te sometes a la soberanía de Jehová?
+
+- **RESPUESTA 1 — Directa**
+	- Los veremos con los ojos de Jehová — como personas de valor por quienes Cristo murió, no como casos perdidos o enemigos. 
+	- Romanos 5:8 es poderoso: Dios demostró su amor cuando todavía éramos pecadores. 
+	- Si Jehová vio potencial en nosotros antes de conocerle, debemos ver ese mismo potencial en cada persona del territorio.
+
+- **RESPUESTA 2 — Complementaria**
+	- Someternos a su soberanía transforma nuestra motivación para predicar — dejamos de hacerlo por cumplir una meta y lo hacemos por amor genuino a las personas. 
+	- Como vimos en Hechos 10:34, Jehová no es parcial y acepta a personas de toda nación — adoptar esa misma mirada amplia y compasiva hacia el territorio es uno de los frutos más hermosos de la sumisión a su soberanía.
+### Defiende la soberanía de Jehová para siempre 
+#### ¿Qué cualidades debemos cultivar desde ahora?
+
+- **RESPUESTA 1 — Directa**
+	- Debemos cultivar integridad, fidelidad e imitación del carácter de Jehová. 
+	- La _w17_ lo resume claramente: 
+		- apoyamos su soberanía siendo íntegros
+		- sirviéndole fielmente 
+		- y haciendo las cosas a su manera. 
+		
+	- No es suficiente estar de acuerdo en teoría — la defensa real de su soberanía se demuestra en decisiones cotidianas concretas basadas en cómo él piensa, no en nuestras preferencias personales.
+
+- **RESPUESTA 2 — Complementaria**
+	- También debemos cultivar un espíritu colaborador y sumiso hacia quienes tienen autoridad delegada. 
+	- La _w17_ destaca que apoyaremos el orden teocrático incluso cuando no comprendamos bien una decisión — esa actitud de confianza humilde es radicalmente diferente a la del mundo y demuestra madurez espiritual genuina. 
+	- Quienes tienen autoridad, por su parte, deben ejercerla con amor imitando a Jehová, y no con exigencia.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Nos revela cómo piensa" — Jehová no da listas de reglas sino que comparte su mente con nosotros; cultivar la cualidad de pensar como él piensa es el objetivo final de toda la sumisión que hemos estudiado en esta lección.
+
+	- **Contexto / Entorno:** Pablo es presentado como modelo práctico — no avergonzó ni presionó sino que motivó con cariño (Filem. 8-10); esa forma de ejercer influencia refleja exactamente cómo Jehová gobierna, con amor y no con coerción.
+
+	- **Valor de la Referencia:** La _w17_ conecta decisiones aparentemente pequeñas — como la ropa — con el apoyo a la soberanía de Dios; esto confirma el principio central de toda la lección: no hay área de la vida demasiado pequeña para demostrar que Jehová merece sumisión total e incondicional.
+
+#### Después del Reinado de Mil Años de Cristo, ¿a qué prueba se enfrentará la humanidad? 
+
+- **RESPUESTA 1 — Directa**
+	- Al final del Reinado de Mil Años Satanás será liberado y saldrá a engañar a las naciones una vez más. 
+	- La humanidad enfrentará la prueba definitiva de lealtad: 
+		- seguir a Satanás o mantenerse fiel a Jehová. 
+	- Será la prueba final que demostrará de forma irrefutable quién merece realmente la soberanía del universo.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo notable es que aun después de mil años de gobierno perfecto bajo Cristo, algunos seguirán a Satanás — confirmando que la lealtad genuina debe nacer del corazón, no de las circunstancias perfectas. 
+	- Quienes permanezcan fieles serán protegidos completamente: 
+		- el fuego del cielo consumirá a los rebeldes, y la soberanía de Jehová quedará vindicada para siempre.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Gog y Magog" en este contexto no es una nación específica sino un símbolo de todos los que en ese momento final elijan rebelarse contra Jehová — su número "como la arena del mar" subraya la magnitud del engaño de Satanás incluso después de mil años de evidencia del gobierno perfecto de Dios.
+	
+	- **Contexto / Entorno:** Esta prueba final cierra el círculo abierto en Edén — allí comenzó el desafío a la soberanía de Jehová y aquí termina definitivamente; todo lo que estudiamos en esta lección — integridad, lealtad, sumisión — apunta hacia ese momento culminante.
+	
+	- **Valor de la Referencia:** Conecta directamente con el desafío de Satanás en Job: él afirmó que nadie mantendría integridad bajo presión — esta prueba final demostrará eternamente que estaba equivocado, y cada decisión leal que tomamos hoy es práctica para ese momento definitivo.
+#### ¿Por qué nunca más se tendrá que resolver la cuestión de la soberanía universal?
+
+- **RESPUESTA 1 — Directa**
+	- Porque quedará demostrado para siempre que la manera de gobernar de Jehová es la mejor. 
+	- Tras la prueba final, todos los seres humanos perfectos y todos los ángeles habrán aceptado su soberanía con gusto y sin reservas. 
+	- No quedará ninguna calumnia, ninguna duda ni ningún rebelde — la cuestión quedará cerrada eternamente y Dios será "todas las cosas para todos."
+
+- **RESPUESTA 2 — Complementaria**
+	- La _w23_ añade un detalle hermoso: 
+		- incluso después de resuelta la cuestión, el nombre de Jehová seguirá impresionando a sus siervos porque él seguirá haciendo cosas increíbles. 
+		
+	- La sumisión futura no será obligada sino gozosa y voluntaria — exactamente el tipo de lealtad genuina de corazón que hemos estudiado en toda esta lección, pero ahora expresada en condiciones perfectas y eternas.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Dios sea todas las cosas para todos" — expresión que en el griego original indica totalidad absoluta; no habrá ningún aspecto de la existencia que no esté completamente alineado con Jehová, cerrando para siempre la brecha abierta en Edén cuando Adán eligió independencia.
+	
+	- **Contexto / Entorno:** El gesto de Jesús de devolver toda autoridad a su Padre (v.28) es el ejemplo supremo de sumisión voluntaria — el ser más poderoso después de Jehová elige humildemente someterse a el.
+	
+	- **Valor de la Referencia:** La _w23_ conecta tres resoluciones simultáneas en ese momento final: 
+		- la integridad humana quedará probada
+		- la soberanía universal quedará vindicada
+		- el nombre de Jehová quedará completamente santificado
+		
+	- Todo lo que estudiamos en esta lección apuntaba hacia ese glorioso desenlace eterno.****
