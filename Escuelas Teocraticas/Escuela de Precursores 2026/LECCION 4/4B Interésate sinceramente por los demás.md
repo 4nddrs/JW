@@ -304,15 +304,133 @@
 
 #### Cuando predicas, ¿cómo adaptarías lo que vas a decir a las circunstancias de estas personas? 
 ##### • Una persona mayor. 
+
+- **RESPUESTA — Directa**
+	- Reconocemos su experiencia y sabiduría. 
+	- Podemos mencionar temas como la esperanza de reunirse con seres queridos o un mundo sin enfermedades. 
+	- Hablarle con calma, respeto y sin prisas le comunica que la valoramos genuinamente.
 ##### • Un niño, un adolescente o un estudiante universitario. 
+
+- **RESPUESTA — Directa**
+	- Usamos un lenguaje fresco y preguntas que inviten a pensar. 
+	- Con jóvenes podemos tocar temas como el propósito de la vida, el futuro del planeta o preguntas que ellos mismos se hacen. 
+	- El tono debe ser cercano, no condescendiente.
 ##### • Un padre o una madre. 
+
+- **RESPUESTA — Directa**
+	- Conectamos con su preocupación más profunda: 
+		- el bienestar de sus hijos. 
+	- Temas como criar hijos felices, un mundo seguro o valores sólidos tocan directamente su corazón y abren la conversación de forma natural.
 ##### • Una persona a la que acabas de despertar o alguien que está enfermo. 
+
+- **RESPUESTA — Directa**
+	- Somos breves y considerados. 
+	- Reconocemos el momento con una disculpa sincera, dejamos un mensaje corto o una publicación y ofrecemos volver en mejor momento. 
+	- La sensibilidad en ese instante dice más que cualquier presentación.
 ##### • Una persona que está de duelo. 
+
+- **RESPUESTA — Directa**
+	- No lanzamos un discurso:
+		- Primero escuchamos y expresamos condolencias genuinas. 
+	- La esperanza de la resurrección puede compartirse con suavidad y en el momento oportuno. 
+	- El cariño y la empatía abren más puertas que las palabras en esa situación.
 ##### • Alguien que tiene una casa bonita o un jardín bien cuidado.
 
+- **RESPUESTA — Directa**
+	- Podemos comenzar con un elogio sincero por su esfuerzo y cuidado. 
+	- Desde ahí es natural conectar con el tema del paraíso terrenal o el diseño de la naturaleza, usando algo que ya le importa como puente hacia las buenas noticias.
+
+###### ANÁLISIS GENERAL
+
+- **Dato Clave — "Me hice de todo" _(1 Cor. 9:22)_:** Pablo no cambiaba sus convicciones sino su _enfoque_ — adaptarse no es ser inconsistente, es ser inteligente y empático al comunicar la misma verdad de formas distintas según quien escucha.
+
+- **Contexto / Entorno:** Pablo escribía desde su propia experiencia real — había predicado a judíos en sinagogas, a filósofos en Atenas y a funcionarios romanos. Su flexibilidad no era teórica sino probada en situaciones concretas muy distintas entre sí.
+
+- **Valor de la Referencia _(1 Cor. 9:19-23)_:** El versículo 23 revela la motivación clave: _"por las buenas noticias"_ — la flexibilidad no nace de querer caerle bien a todos, sino del deseo genuino de que cada persona tenga la oportunidad de escuchar y aceptar el mensaje.
 #### ¿Por qué es importante que seas adaptable? ¿Cómo puedes lograrlo?
+
+- **RESPUESTA 1 — Directa**
+	-  Porque cada persona es diferente y lo que conecta con una puede no conectar con otra. 
+	- Pablo lo demostró en Listra: con gente que no conocía las Escrituras habló de cosechas y alegría de vivir, cosas que les resultaban familiares. 
+	- Adaptarse no es cambiar el mensaje, es encontrar la puerta de entrada al corazón de cada persona.
+
+- **RESPUESTA 2 — Complementaria**
+	- Se logra siendo observadores antes de hablar. 
+	- Lo que la persona está haciendo, su ropa, su jardín o incluso su camiseta nos dice algo sobre ella.
+	- El ejemplo de Gustavo es poderoso: 
+		- una pregunta sobre una camiseta resultó en un curso bíblico y un nuevo hermano. 
+		
+	- La clave fue notar, preguntar y escuchar antes de predicar.
+
+- **ANÁLISIS**
+	- **Dato Clave — "Palabras fáciles de entender":** El texto destaca que Pablo no solo cambió el tema sino el _vocabulario_ — adaptarse incluye simplificar el lenguaje según el nivel y trasfondo del oyente, no solo el contenido del mensaje.
+	
+	- **Contexto / Entorno:** Listra era una ciudad de Asia Menor con poca influencia judía — su población era mayormente pagana y rural, lo que explica por qué Pablo usó la naturaleza y la vida cotidiana como punto de partida en lugar de citar las Escrituras como hacía en las sinagogas.
+	
+	- **Valor de la Referencia _(w20.04 pág. 11)_:** El ejemplo real de Gustavo aporta algo que la teoría no puede: prueba concreta de que la observación más pequeña — una imagen en una camiseta — puede ser el puente hacia una vida transformada, reforzando que adaptarse es una habilidad espiritual con resultados eternos.
+
 #### Si la persona con la que hablas menciona algo que le preocupa, ¿por qué debes dirigir la conversación hacia ese asunto?
+
+- **RESPUESTA 1 — Directa**
+	- Porque eso es precisamente lo que significa interesarse de verdad. 
+	- Si la persona nos abre su corazón mencionando algo que le preocupa y nosotros ignoramos ese detalle para seguir con nuestra presentación preparada, le estamos diciendo sin palabras que su situación no nos importa. 
+	- Dirigir la conversación hacia lo que le preocupa es honrarla, como dice Romanos 12:10.
+
+- **RESPUESTA 2 — Complementaria**
+	- Además, esa preocupación es la puerta de entrada natural al mensaje. 
+	- Como vimos con Pablo, él no imponía un guión fijo sino que se adaptaba a lo que le resultaba familiar y significativo al oyente. 
+	- Si alguien menciona lo que le duele o le inquieta, ya nos está indicando por dónde entrar. 
+	- Escuchar con atención, como dice Santiago 1:19, nos permite detectar ese momento y aprovecharlo con tacto y cariño.
 #### ¿En qué casos sería mejor terminar la conversación?
-	#### ¿Qué te ayudará a recordar a las personas que mostraron interés?
+
+- **RESPUESTA 1 — Directa**
+	- Cuando la persona está enojada, solo quiere discutir o simplemente no tiene ganas de hablar, es momento de terminar con calma y tacto. 
+	- No se trata de rendirse sino de ser sabios, como dice Proverbios 17:14. 
+	- Despedirse con amabilidad deja una buena impresión y mantiene abierta la puerta para el futuro.
+
+- **RESPUESTA 2 — Complementaria**
+	- También debemos terminar la conversación si alguien comienza a difundir mentiras apóstatas o a atacar a Jehová y a la organización. 
+	- En ese caso no entramos en debate ni por curiosidad. 
+	- Tenemos fe en Jehová y confiamos en nuestros hermanos, y esa convicción nos da la seguridad de retirarnos sin sentirnos obligados a responder cada acusación.
+
+- **ANÁLISIS**
+	- **Dato Clave — "Flechas encendidas" _(Efes. 6:16)_:** La imagen es deliberada — una flecha encendida no se agarra para apagarla con la mano, se detiene con el escudo. Discutir con un apóstata es intentar agarrar la flecha; alejarse es usar el escudo de la fe correctamente.
+	
+	- **Contexto / Entorno:** El texto distingue claramente dos situaciones: alguien que genuinamente no está de acuerdo y quiere entender — con ese se continúa — VS alguien que solo quiere provocar o difundir falsedades — con ese se termina. La clave es discernir la intención del corazón del interlocutor.
+	
+	- **Valor de la Referencia _(w19.11 pág. 15; lmd apéndice B)_:** Aporta un principio equilibrado y esperanzador: terminar una conversación no es un fracaso ni un rechazo permanente. Citar 1 Pedro 2:12 al final es clave — una despedida digna y amable puede ser la semilla que germine después.
+
+#### ¿Qué te ayudará a recordar a las personas que mostraron interés?
+
+- **RESPUESTA — Directa**
+	- Tomar notas después de cada conversación nos ayuda a recordar detalles importantes: 
+		- el nombre de la persona
+		- lo que le preocupa
+		- lo que compartimos con ella. 
+		
+	- Esos detalles nos permiten retomar la conversación de forma personalizada en la siguiente visita, demostrando que realmente la recordamos y nos importa su situación.
 ##### ¿Por qué volver a visitar a las personas demuestra que nos preocupamos de verdad por ellas?
+
+- **RESPUESTA — Directa**
+	- Volver a visitar a alguien es la prueba más concreta del interés genuino que mencionaba la introducción de esta lección. 
+	- Cualquiera puede sonreír una vez en la puerta, pero quien regresa demuestra que ese cariño no fue superficial. 
+	- Como vimos con el ejemplo de las personas que hablan otro idioma, somos responsables de seguir visitándolas hasta que reciban ayuda real. 
+	- Ese mismo principio aplica con todos los interesados.
+
+###### ANALISIS
+
+- **Dato Clave — "Ayuda a los demás a progresar":** El texto final de la lección conecta directamente el interés genuino con el seguimiento — preocuparse de verdad impulsa naturalmente a seguir pensando en la persona y a volver, no como obligación sino como expresión del corazón.
+
+- **Contexto / Entorno:** A lo largo de toda la lección vimos que el interés genuino se expresa en acciones concretas y sostenidas: 
+	- escuchar
+	- adaptar
+	- preguntar
+	- mirar a los ojos
+	- felicitar
+	- y volver a visitarla. 
+	
+- El seguimiento es el último eslabón de esa cadena de cuidado genuino.
+
+- **Valor acumulado de la lección:** Cada habilidad estudiada — contacto visual, preguntas con tacto, flexibilidad, escucha atenta — solo tiene impacto real si hay un regreso. Sin la revisita, todas esas cualidades quedan en un solo encuentro; con ella, se convierten en una relación que puede llevar a alguien a la vida eterna.
+
 
