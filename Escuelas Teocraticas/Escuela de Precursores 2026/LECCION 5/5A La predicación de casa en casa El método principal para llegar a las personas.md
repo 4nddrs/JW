@@ -497,11 +497,25 @@
 	- Esa empatía sincera es lo que las hace receptivas.
 
 - **ANÁLISIS**
-
+	- **Dato Clave:** _Siloam_ significa "enviado" — el hombre obedeció sin ver ni entender aún; su disposición a escuchar nació del trato bondadoso que recibió primero.
+	
+	- **Contexto:** En el siglo I la ceguera era considerada consecuencia directa del pecado — Jesús rompió ese prejuicio cultural antes de actuar, modelo directo de cómo debemos acercarnos sin estigmas.
+	
+	- **Valor de la Referencia (lmd lección 3):** "Una muestra de bondad puede ser la llave que abra la puerta" — el material confirma que la bondad no es opcional ni secundaria, es la estrategia principal antes de cualquier conversación bíblica.
 #### Aunque alguien te dé una respuesta desagradable, ¿por qué no debes perder nunca el entusiasmo?
 
-- **Dato Clave:** _Siloam_ significa "enviado" — el hombre obedeció sin ver ni entender aún; su disposición a escuchar nació del trato bondadoso que recibió primero.
+- **RESPUESTA 1 — Directa**
+	- Porque el entusiasmo no depende de cómo nos traten, sino de la meta final. 
+	- Jesús prometió salvación al que aguante hasta el fin — esa promesa es más grande que cualquier rechazo o trato desagradable que enfrentemos en el ministerio.
 
-- **Contexto:** En el siglo I la ceguera era considerada consecuencia directa del pecado — Jesús rompió ese prejuicio cultural antes de actuar, modelo directo de cómo debemos acercarnos sin estigmas.
+- **RESPUESTA 2 — Complementaria**
+	- El odio que algunos muestran no es personal — es por causa del nombre de Jesús. 
+	- Entender eso nos libera de tomarlo como algo contra nosotros y nos ayuda a responder con apacibilidad, manteniendo el entusiasmo intacto sin importar la reacción.
 
-- **Valor de la Referencia (lmd lección 3):** "Una muestra de bondad puede ser la llave que abra la puerta" — el material confirma que la bondad no es opcional ni secundaria, es la estrategia principal antes de cualquier conversación bíblica.
+- **ANÁLISIS**
+	- **Dato Clave:** _"Aguante"_ en griego es _hypomeínas_ — resistencia activa bajo presión, no resignación pasiva; implica seguir avanzando con propósito a pesar del rechazo.
+	
+	- **Contexto:** Jesús habló estas palabras al enviar a los 12 — sabía que enfrentarían oposición real, por eso vinculó la perseverancia directamente con la salvación.
+	
+	- **Valor de la Referencia:** "Hasta el fin" no es una meta lejana y abstracta — es cada día que salimos a predicar a pesar de las circunstancias, acumulando una fidelidad que Jehová nunca olvida.
+
