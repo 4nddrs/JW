@@ -413,45 +413,121 @@
 ##### • ¿Qué textos nos ayudan a tomar una decisión correcta sobre el servicio militar obligatorio?
 
 - **RESPUESTA 1 — Directa**
-	-
+	- Isaías 2:2-4 profetiza que en los últimos días las naciones convertirán espadas en arados y "no aprenderán más a hacer la guerra."
+	- Los cristianos vivimos esa profecía hoy negándonos a tomar las armas. 
+	- A eso se suma la orden directa de Jesús en Mateo 26:52: 
+		- "Guarda tu espada, porque todos los que usan la espada morirán a espada."
 
 - **RESPUESTA 2 — Complementaria**
-	-
+	- Juan 13:34, 35 añade la razón positiva detrás de esta postura: 
+		- el amor mutuo es la marca distintiva de los discípulos de Cristo.
+	- Resulta imposible amar genuinamente a hermanos cristianos de otra nacionalidad y al mismo tiempo tomar las armas contra ellos en un conflicto bélico. 
+	- Nuestra identidad como discípulos se basa en el amor, no en la lealtad nacional.
 
 - **ANÁLISIS**
-
+	- **Dato Clave / Palabra:** Mateo 26:52 fue dicho en el momento en que Pedro defendía físicamente a Jesús — incluso para proteger al propio Hijo de Dios, la violencia armada fue rechazada categóricamente.
+	
+	- **Contexto / Entorno:** Isaías 2:2-4 fue escrito en una época de constante guerra entre Israel y naciones vecinas — la profecía contrastaba radicalmente con la realidad violenta de su tiempo, igual que hoy.
+	
+	- **Valor de la Referencia:** Juan 13:34, 35 es clave para el servicio militar específicamente: 
+		- Hermanos en la fe de países "enemigos" se aman como familia
+	- Lo que hace literalmente imposible que tomen las armas unos contra otros sin traicionar ese mandamiento.
 ##### • ¿Qué debemos tomar en cuenta si se nos pide hacer un servicio civil sustitutorio?
 
 - **RESPUESTA 1 — Directa**
-	-
+	- No existe una sola respuesta válida para todos: 
+		- la situación varía de un país a otro, y cada cristiano debe decidir siguiendo su conciencia educada por la Biblia. 
+	- Algunos hermanos han aceptado servicios como ayudar a ancianos, limpiar playas o trabajar en bibliotecas, sin sentir que comprometen su neutralidad.
+	- Otros, en cambio, han preferido la cárcel antes que participar en algo que ellos entienden viola su postura.
 
 - **RESPUESTA 2 — Complementaria**
-	-
+	- Lo importante es que esta decisión nunca se toma a la ligera ni siguiendo el criterio de otra persona. 
+	- Es un asunto profundamente personal entre el cristiano y Jehová, basado en cómo esa persona entiende los principios de Isaías 2:4 y Juan 17:16. 
+	- Por eso debemos respetar las decisiones de conciencia de nuestros hermanos, incluso cuando difieran de la nuestra ante una misma situación.
 
 - **ANÁLISIS**
-
+	- **Dato Clave / Palabra:** El artículo distingue entre "conciencia educada por la Biblia" y opinión personal — la decisión no se basa en preferencias sino en principios bíblicos cuidadosamente estudiados y aplicados.
+	
+	- **Contexto / Entorno:** El artículo reconoce que algunos cristianos han enfrentado pena capital o largas condenas por sus decisiones de conciencia — esto subraya la seriedad y el peso real de este tipo de decisiones, no es un tema teórico.
+	
+	- **Valor de la Referencia:** La publicación deja claro que no hay una postura "oficial" única sobre el servicio civil sustitutorio — esto evita que los hermanos juzguen a otros cuya conciencia los lleve a una decisión diferente sobre el mismo asunto.
 ##### • ¿Cuáles son algunas cosas que sí le damos al césar?
 
 - **RESPUESTA 1 — Directa**
-	-
+	- Romanos 13:1, 5, 6 menciona claramente: 
+		- sumisión a las autoridades y el pago de impuestos. 
+	- No lo hacemos solo por miedo al castigo, sino por motivos de conciencia, reconociendo que Pablo llama a los gobernantes "siervos públicos de Dios." 
+	- Esa sumisión es genuina, no forzada ni resentida.
 
 - **RESPUESTA 2 — Complementaria**
-	-
+	- Más allá de impuestos, también le damos al César obediencia a las leyes razonables del país, respeto a sus representantes y cooperación en asuntos civiles que no contradigan la ley de Dios. 
+	- La frase "por causa de su conciencia" es clave: 
+		- Nuestra obediencia no es solo exterior, sino que nace de un convencimiento interno de que esto agrada a Jehová.
 
 - **ANÁLISIS**
-
+	- **Dato Clave / Palabra:** "Siervos públicos" en griego es _leitourgoí_, un término que originalmente describía un servicio oficial o público — Pablo eleva el rol de los gobernantes a algo con propósito divino, aunque limitado.
+	
+	- **Contexto / Entorno:** Pablo escribió esto bajo el gobierno romano, una potencia pagana que más tarde perseguiría brutalmente a los cristianos — aun así, el principio de someterse en lo que corresponde se mantuvo válido.
+	
+	- **Valor de la Referencia:** Este texto equilibra perfectamente con Mateo 22:21: hay cosas legítimas que le debemos al César (impuestos, sumisión civil), y cosas exclusivas que pertenecen solo a Jehová (adoración, devoción total) — la integridad cristiana sabe distinguir ambas.
 #### ¿Qué harías en las siguientes situaciones?
 #### El gobierno nos prohíbe: 
 ##### • Predicar las buenas noticias. 
+
+- **RESPUESTA — Directa**
+	- Seguiría predicando, adaptando el método pero no la decisión, porque Hechos 5:29 establece con claridad: 
+		- "Tenemos que obedecer a Dios como gobernante más bien que a los hombres."
 ##### • Ir de casa en casa. 
+
+- **RESPUESTA — Directa**
+	- Buscaría otras formas de predicar —con vecinos, compañeros de trabajo o de manera informal—, como hicieron los hermanos en la antigua Unión Soviética, sin abandonar nunca el ministerio.
 ##### • Distribuir publicaciones bíblicas a domicilio. 
+
+- **RESPUESTA — Directa**
+	- Compartiría las Escrituras y su mensaje de viva voz o por otros medios disponibles, confiando en que Jehová siempre proveerá una manera de seguir enseñando su Palabra.
 ##### • Celebrar nuestras reuniones.
+
+- **RESPUESTA — Directa**
+	- Buscaría reunirme en grupos pequeños y discretos con otros hermanos, tal como hicieron los testigos perseguidos a lo largo de la historia, porque no faltar a las reuniones fortalece nuestra fe para resistir.
 
 #### El gobierno nos exige: 
 ##### • Inscribirnos en el censo electoral y votar en las elecciones locales o nacionales. 
+
+- **RESPUESTA 1 — Directa**
+	- Me inscribiría si la ley lo exige como requisito administrativo, pero no votaría por ningún candidato ni partido, manteniendo mi neutralidad conforme a 1 Samuel 8:4-7.
 ##### • Registrarnos en un censo nacional. 
+
+- **RESPUESTA 1 — Directa**
+	- Cooperaría sin problema, ya que esto es un trámite administrativo de identificación civil, no un acto de adoración ni de participación política, y por tanto no compromete mi neutralidad.
 ##### • Obtener determinados documentos antes de cruzar las fronteras políticas. 
+
+- **RESPUESTA 1 — Directa**
+	- Obtendría los documentos requeridos, pues esto corresponde a "pagar al César lo que es de César" (Mat. 22:21), un requisito civil legítimo y razonable.
 ##### • Cumplir con ciertos requisitos para casarnos. 
+
+- **RESPUESTA 1 — Directa**
+	- Cumpliría con esos requisitos legales, ya que el matrimonio civil es reconocido por la Biblia como parte del orden establecido y no contradice ningún principio de neutralidad
 ##### • Inscribir a los recién nacidos en el registro civil.
 
-#### ¿Cómo nos beneficia obedecer primero a Dios y luego al césar? (2 Ped. 2:9).
+- **RESPUESTA 1 — Directa**
+	- Inscribiría a mis hijos sin dudarlo, pues es un acto administrativo necesario para su identidad legal, no una violación de mi lealtad exclusiva a Jehová.
+
+#### ¿Cómo nos beneficia obedecer primero a Dios y luego al césar?
+
+- **RESPUESTA 1 — Directa**
+	- 2 Pedro 2:9 nos da una garantía clara: 
+		- Jehová sabe rescatar de las pruebas a quienes le tienen devoción. 
+	- Cuando ponemos a Dios primero, no quedamos desamparados ante las consecuencias de esa decisión
+	- Jehová ve nuestra lealtad y promete liberarnos en su momento y a su manera.
+
+- **RESPUESTA 2 — Complementaria**
+	- Obedecer primero a Dios también nos da una conciencia limpia y la aprobación de Jehová, algo que ningún beneficio terrenal puede ofrecer. 
+	- Aunque a veces enfrentemos oposición por nuestra postura, sabemos que estamos del lado correcto, y eso nos da paz mental y la seguridad de que nuestra lealtad nunca pasa desapercibida ante Dios.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Sabe rescatar" implica capacidad y experiencia comprobada — no es una promesa incierta sino algo que Jehová ya ha demostrado hacer repetidamente a lo largo de la historia bíblica.
+	
+	- **Contexto / Entorno:** Pedro escribió esto en el contexto de advertir sobre falsos maestros y un juicio venidero — el rescate de los fieles está directamente vinculado a la justicia final de Jehová.
+	
+	- **Valor de la Referencia:** Este texto resume el principio central de toda la lección: 
+		- Priorizar a Jehová sobre cualquier autoridad humana siempre trae beneficio a largo plazo, aunque a corto plazo implique pruebas.
