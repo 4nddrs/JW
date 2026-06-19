@@ -1,6 +1,18 @@
 [8B Participa en las diferentes formas de predicación](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102014878&par=2)
 ## INTRODUCCIÓN
 
+- Jesús predijo una gran campaña de predicación en el tiempo del fin, parte de la señal de su presencia como Rey.
+
+- Esta obra se está intensificando, y los precursores van en primera línea.
+
+- El mensaje de la verdad da a los que aman la justicia la oportunidad de conocer a Jehová; también sirve de advertencia, ya que el juicio se acerca.
+
+- En años recientes ha sido más difícil encontrar a la gente en casa, y la pandemia afectó mucho la predicación.
+
+- Los cristianos del siglo primero aprovechaban toda oportunidad: predicación pública, informal y de casa en casa.
+
+- Su objetivo eran las personas, no los hogares; debemos imitarlos para cumplir completamente nuestro ministerio.
+
 ## PREGUNTAS 
 ### La predicación informal: aprovecha todas las oportunidades
 
