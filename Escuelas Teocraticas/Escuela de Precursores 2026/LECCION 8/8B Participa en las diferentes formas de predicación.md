@@ -316,39 +316,275 @@
 - **RESPUESTA — Directa**
 	- Me ayudaron porque logre entender que uno puede llegar a predicar en cualquier situación, no hace falta salir a predicar para poder encontrar a alguien con interés sincero.
 #### ¿Cómo te das cuenta de que una persona no quiere seguir hablando de la Biblia? 
+
+- **RESPUESTA 1 — Directa**
+	- Suelo notarlo por el lenguaje corporal y las respuestas cortas: si la persona se aleja, mira el reloj, cruza los brazos o responde con monosílabos, probablemente ya no quiere continuar.
+	- En esos casos, lo mejor es respetar su tiempo y retirarme con amabilidad, dejando la puerta abierta para otra ocasión.
+
+- **RESPUESTA 2 — Complementaria**
+	- También se nota cuando cambia de tema repetidamente o se pone tensa al mencionar la Biblia. 
+	- Como enseña el principio de humildad de la lmd lección 4, no se trata de insistir ni discutir; ser apacibles y saber cuándo retirarse demuestra respeto y puede dejar una mejor impresión para el futuro.
 ##### ¿Qué haces en ese caso? 
+- **RESPUESTA — Directa**
+	- En ese caso, respeto su decisión, le doy las gracias por su tiempo amablemente y me retiro sin insistir. 
+	- Puedo dejarle algo breve, como una invitación a nuestro sitio jw.org, y seguir adelante con calma, confiando en que quizás en otra ocasión esté más dispuesta a conversar.
 ##### ¿Por qué es importante que la persona se quede con una buena impresión?
+
+- **RESPUESTA 1 — Directa**
+	- Es importante porque la forma en que nos despedimos puede abrir o cerrar la puerta para el futuro, ya sea para nosotros u otro publicador. 
+	- Si reaccionamos con calma y amabilidad aunque la persona se enoje, dejamos una buena impresión que puede hacer que esté más dispuesta a escuchar la próxima vez.
+
+- **RESPUESTA 2 — Complementaria**
+	- La ilustración de despertar a alguien con suavidad me parece muy útil:
+		- Igual que no nos gusta que nos saquen bruscamente de un sueño profundo, a las personas tampoco les gusta sentirse presionadas espiritualmente. 
+	- Tratarlas con paciencia respeta su proceso y demuestra el amor que decimos predicar.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** La ilustración de "despertar espiritualmente" compara nuestra predicación con sacar suavemente a alguien de un sueño profundo, evitando todo tipo de brusquedad.
+	
+	- **Contexto / Entorno:** El artículo reconoce que algunas personas reaccionan con enojo en el ministerio, una situación común que requiere manejo cuidadoso de nuestras emociones.
+		
+	- **Valor de la Referencia:** w12 destaca que la amabilidad al despedirnos beneficia no solo nuestra próxima visita, sino también la de cualquier otro publicador que pase después.
 #### ¿Qué haces para que quienes han mostrado interés te den su dirección, teléfono o correo electrónico? 
+
+- **RESPUESTA — Directa**
+	- Cuando alguien muestra interés genuino, le ofrezco dejarle más información o avisarle cuando esté de nuevo por la zona, y le pido su número o correo para coordinar mejor el horario que le convenga. 
+	- Mostrar interés real en ayudarla, no solo en contactarla, hace que se sienta cómoda dándome sus datos.
 ##### ¿Qué puedes hacer si ves que la persona prefiere no compartir esos datos? 
+
+- **RESPUESTA — Directa**
+	- Si la persona prefiere no darme sus datos, respeto su decisión sin insistir y le aseguro que no hay problema. 
+	- Puedo ofrecerle pasar por su zona en otra ocasión, o simplemente dejarle algo de información para que ella decida si quiere profundizar más, sin presionarla en ningún momento.
 ##### ¿Qué haces para volver a encontrarte con una persona si no tienes su dirección? 
+
+- **RESPUESTA — Directa**
+	- Si no tengo su dirección, trato de recordar bien la ubicación donde la encontre, el aspecto de la casa o algún punto de referencia cercano, y anoto esos detalles junto con la fecha y hora en que estuve allí. 
+	- Así puedo volver a pasar por la zona en un horario similar con más probabilidades de encontrarla de nuevo.
 #### Si en tu país no se toman datos personales en la predicación, ¿qué otras cosas puedes hacer para que la persona sea atendida?
 
+- **RESPUESTA — Directa**
+	- uedo anotar bien la dirección o referencia del lugar, junto con el tema que conversamos y la fecha, para hacer un seguimiento yo mismo lo antes posible. 
+	- También puedo coordinar con otros publicadores del grupo o congregación para que entre todos cubramos esa zona con más frecuencia y la persona reciba atención constante.
 #### ¿Por qué no llamamos incidental a esta forma de predicar?
+
+- **RESPUESTA 1 — Directa**
+	- No la llamamos incidental porque eso implicaría que ocurre por casualidad o sin importancia, y para nosotros predicar siempre es intencional, una prioridad que buscamos activamente. 
+	- Lo que cambia es el método:
+		- Puede ser informal, es decir, relajado y amigable
+		- Pero nunca accidental ni algo secundario.
+
+- **RESPUESTA 2 — Complementaria**
+	- Como Pablo, nuestra meta es dar gloria a Dios mediante el testimonio dondequiera que vayamos, sea en un viaje, el trabajo o el vecindario.
+	- Eso muestra que la predicación informal requiere estar siempre alerta y dispuestos, no esperando que las oportunidades simplemente "sucedan" sin nuestra intención.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Incidental" sugiere algo no planeado y de poca importancia, mientras que "informal" describe solo el tono relajado del método, no la falta de intención.
+	
+	- **Contexto / Entorno:** Esta publicación (km 6/03) se dirigió originalmente a los hermanos durante la temporada de viajes de verano, animándolos a no dejar de predicar por estar fuera de casa.
+	
+	- **Valor de la Referencia:** Aclara una distinción importante de vocabulario: nuestra predicación siempre es deliberada, aunque el estilo de abordaje pueda variar según la situación.
 ##### ¿Qué publicaciones sueles llevar para estar preparado para predicar en cualquier momento? 
+
+- **RESPUESTA — Directa**
+	- Suelo llevar conmigo algunas tarjetas de contacto o una invitación a la reunión o asamblea, y tengo JW Library a mano en el teléfono con videos cortos y el folleto "Buenas noticias" o "Disfrute la vida para siempre". 
+	- Así siempre tengo algo breve y útil listo para cualquier conversación inesperada.
 ##### ¿Cómo has utilizado los tratados y las tarjetas de contacto en la predicación informal?
 
+- **RESPUESTA 1 — Directa**
+	- He usado los tratados aprovechando su formato de pregunta con varias opciones de respuesta, lo cual hace que la persona se sienta cómoda participando, sin temor a "equivocarse". 
+	- Sin importar qué responda, paso a la página siguiente y leo el texto bíblico, lo que siempre garantiza compartir algo de la Palabra de Dios.
+ 
+- **RESPUESTA 2 — Complementaria**
+	- Con las tarjetas de contacto, las he ofrecido especialmente a personas que no quieren publicaciones pero sí muestran curiosidad por el sitio jw.org. 
+	- Por su tamaño pequeño, las llevo siempre conmigo y puedo decir algo breve como "tiene videos gratuitos sobre varios temas", abriendo la puerta sin presionar a nadie.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** Todos los tratados nuevos comparten el mismo formato, así que dominar uno significa saber usarlos todos, facilitando la preparación.
+	
+	- **Contexto / Entorno:** El diseño de pregunta con opciones busca reducir la ansiedad social de la persona al "tener que responder bien", fomentando conversaciones más naturales.
+	
+	- **Valor de la Referencia:** mwb16.10 aclara que las tarjetas no deben darse a quienes no muestran ningún interés, enseñando discernimiento en su uso.
 ### La predicación pública: habla de las buenas noticias cuando sea apropiado
 
 #### ¿Por qué no decimos que esta predicación es “alternativa”?
+
+- **RESPUESTA 1 — Directa**
+	- No la llamamos "alternativa" porque esa palabra da a entender que es opcional o algo aparte de la predicación tradicional. 
+	- En realidad, Pablo mismo predicaba públicamente además de ir de casa en casa, así que es más correcto llamarla predicación pública, una forma legítima y plena de nuestro ministerio.
+
+- **RESPUESTA 2 — Complementaria**
+	- Esto me recuerda que el objetivo de los primeros cristianos era hablar con las personas, no solo tocar puertas. 
+	- Por eso combinaban la predicación pública, informal y de casa en casa, y nosotros debemos hacer lo mismo para cumplir nuestro ministerio a plenitud, sin ver ningún método como secundario.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** El término "alternativa" implica algo opcional o secundario, mientras que "pública" describe correctamente un método igual de válido y bíblico.
+	
+	- **Contexto / Entorno:** Esta corrección de vocabulario buscó alinear el lenguaje de los publicadores con el ejemplo explícito de Pablo en Hechos 20:20.
+	
+	- **Valor de la Referencia:** Refuerza que la meta de casa en casa, pública e informal es la misma: las personas, no un método específico por encima de otro.
 #### De acuerdo con Hechos 16:13 y 17:17, ¿qué ocasiones pueden ser buenas para predicar? 
+
+- **RESPUESTA 1 — Directa**
+	- Hechos 16:13 muestra que Pablo aprovechó un lugar de oración junto a un río donde había mujeres reunidas, un sitio inesperado pero propicio para hablar de la Biblia. 
+	- Esto nos enseña que cualquier lugar donde haya personas reunidas, aunque no sea una sinagoga formal, puede ser una buena ocasión para predicar.
+
+- **RESPUESTA 2 — Complementaria**
+	- En Hechos 17:17, Pablo predicaba "todos los días" en la plaza de mercado, un lugar de actividad comercial cotidiana. 
+	- Esto muestra que no esperaba ocasiones especiales, sino que aprovechaba la rutina diaria, como hacer compras o estar en lugares públicos, para entablar conversaciones espirituales.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** La "plaza de mercado" (ágora) era el centro social y comercial de las ciudades griegas, un lugar natural donde la gente se reunía a diario.
+	
+	- **Contexto / Entorno:** En Filipos no había suficientes judíos para formar una sinagoga, por lo que el lugar de oración junto al río servía como punto de encuentro alternativo para adoradores de Dios.
+	
+	- **Valor de la Referencia:** Ambos textos muestran que Pablo identificaba y aprovechaba los lugares donde la gente ya se congregaba de forma natural, en vez de esperar pasivamente.
 #### ¿Cómo pueden ayudarnos en la predicación los principios mencionados en los siguientes textos? 
 ##### Mateo 7:12 
+
+- **RESPUESTA 1 — Directa**
+	- Este principio nos invita a tratar a las personas como nos gustaría que nos trataran a nosotros. 
+	- En la predicación, esto significa ser pacientes, respetuosos y considerados con cada persona, poniéndonos en su lugar antes de hablarle, igual que nos gustaría que alguien lo hiciera con nosotros.
+
+- **RESPUESTA 2 — Complementaria**
+	- Aplicar la Regla de Oro también implica no presionar a nadie ni imponer nuestro horario. 
+	- Si yo no querría que interrumpieran mi día de forma brusca, debo ser sensible al tiempo y la situación de la otra persona, buscando el momento más adecuado para hablarle.
 ##### Hebreos 13:16
 
+- **RESPUESTA 1 — Directa**
+	- Este texto nos anima a compartir lo que tenemos con los demás como un sacrificio que agrada a Dios. 
+	- La predicación es precisamente eso: 
+		- Compartir generosamente el mensaje de esperanza bíblica con otros, viéndolo no como una carga sino como un acto de bondad que Jehová valora profundamente.
+
+- **RESPUESTA 2 — Complementaria**
+	- Me llama la atención que se le llame "sacrificio", lo que sugiere que a veces predicar requiere esfuerzo o entrega personal, como nuestro tiempo o comodidad. 
+	- Aun así, el versículo asegura que ese esfuerzo agrada mucho a Dios, lo cual es una motivación poderosa para seguir compartiendo con otros.
+
+###### ANÁLISIS GENERAL:
+
+- **Dato Clave / Palabra:** "Sacrificios" en Hebreos describe ofrendas que agradan a Dios; aquí se aplica a actos de bondad y generosidad, no solo a ofrendas rituales.
+
+- **Contexto / Entorno:** Mateo 7:12 resume "la Ley y los Profetas", mostrando que tratar bien a otros era ya un principio central del pensamiento bíblico antes de Jesús.
+
+- **Valor de la Referencia:** Ambos textos muestran que la motivación correcta para predicar nace de la empatía y la generosidad genuina, no de la obligación o el deber.
 #### ¿Por qué dan tan buenos resultados los métodos de predicación que se presentan a continuación? 
+
+- **RESPUESTA 1 — Directa**
+	- Estos métodos funcionan bien porque llegan a las personas justo donde están, en su rutina diaria, en lugar de esperar que vengan a nosotros o las encontremos en casa. 
+	- Esto es especialmente valioso ahora que, como menciona la introducción, es cada vez más difícil hallar a la gente en sus hogares.
+
+- **RESPUESTA 2 — Complementaria**
+	- También dan buenos resultados porque imitan exactamente el ejemplo de los primeros cristianos, que predicaban "públicamente" y "de casa en casa" según Hechos 20:20. 
+	- Al diversificar dónde y cómo predicamos, alcanzamos a personas de todo tipo de horarios y estilos de vida, cumpliendo plenamente nuestro ministerio.
 #### ¿Qué ideas pueden ayudarnos a ser más eficaces al usar estos métodos? 
 ##### • La predicación pública con los carritos. 
+
+- **RESPUESTA 1 — Directa**
+	- Ser amigable y mantener contacto visual con quienes pasan ayuda a invitarlos a acercarse sin sentirse presionados. 
+	- Una sonrisa genuina y estar atentos, sin distraernos con el teléfono, hace que la gente se sienta bienvenida a detenerse y conversar sobre las publicaciones exhibidas.
+
+- **RESPUESTA 2 — Complementaria**
+	- Variar el saludo según quien se acerque, jóvenes, ancianos o familias, y tener preparada una pregunta breve relacionada con un titular de la revista, puede despertar curiosidad rápidamente y dar pie a una conversación más profunda.
 ##### • La predicación en el transporte público. 
+
+- **RESPUESTA 1 — Directa**
+	- Aprovechar el tiempo de espera o el trayecto para entablar una conversación breve y natural con quien esté cerca, sin invadir su espacio, es clave. 
+	- Un comentario sencillo sobre el clima o el lugar puede abrir la puerta amablemente.
+
+- **RESPUESTA 2 — Complementaria**
+	- Llevar siempre algo pequeño, como una tarjeta de contacto o un tratado, permite dejar algo útil incluso si la conversación es muy corta debido al tiempo limitado del viaje.
 ##### • La predicación en parques y estacionamientos. 
+
+- **RESPUESTA 1 — Directa**
+	- Observar a las personas relajadas, como quienes pasean a su perro o descansan en una banca, ayuda a identificar buenos momentos para acercarse, ya que suelen estar más dispuestas a conversar sin prisa.
+
+- **RESPUESTA 2 — Complementaria**
+	- Iniciar con un comentario positivo sobre el lugar o el clima antes de mencionar el tema bíblico ayuda a crear un ambiente cómodo y relajado, similar al entorno natural en que se encuentran.
 ##### • La predicación en las calles. 
+
+- **RESPUESTA 1 — Directa**
+	- Caminar a un ritmo similar al de las personas y abordarlas con una sonrisa, sin bloquearles el paso, hace que se sientan más cómodas para detenerse a escuchar brevemente lo que tenemos que decir.
+ 
+- **RESPUESTA 2 — Complementaria**
+	- Tener listas frases breves y directas, ya que en la calle la gente suele tener poco tiempo, ayuda a captar su atención rápidamente antes de que sigan su camino.
 ##### • La predicación en mercados o centros comerciales. 
+
+- **RESPUESTA 1 — Directa**
+	- Adaptar el enfoque según el ambiente, más relajado en una tienda pequeña y más breve en un centro concurrido, ayuda a no interrumpir la actividad de la persona mientras se busca una oportunidad natural de hablar.
+ 
+- **RESPUESTA 2 — Complementaria**
+	- Mostrar interés en lo que la persona está haciendo.
+	- Por ejemplo:
+		- Comentar algo sobre el producto que está comprando, puede ser un buen punto de partida antes de dirigir la conversación hacia un tema espiritual.
 ##### • La predicación en negocios. 
+
+- **RESPUESTA 1 — Directa**
+	- Ser breves y respetuosos con el tiempo de los empleados, identificando momentos de menos actividad, demuestra consideración y aumenta las posibilidades de tener una buena conversación sin interrumpir su trabajo.
+
+- **RESPUESTA 2 — Complementaria**
+	- Volver en otro momento si notamos que están ocupados, en vez de insistir, refleja el principio de humildad y tacto que ya vimos, dejando una buena impresión para una futura visita.
 ##### • La predicación por teléfono, si es apropiado donde vives.
 
+- **RESPUESTA 1 — Directa**
+	- Preparar de antemano una breve introducción clara y amigable ayuda a captar la atención rápido, ya que por teléfono no hay lenguaje corporal que ayude a generar confianza, así que el tono de voz cobra mucha importancia.
+
+- **RESPUESTA 2 — Complementaria**
+	- Respetar inmediatamente si la persona indica que no es buen momento, y ofrecer llamar en otra ocasión, demuestra cortesía y tacto, principios que hemos visto son esenciales en cualquier forma de predicación.
+
+###### ANÁLISIS GENERAL:
+
+- **Dato Clave / Palabra:** En todos los métodos, el factor común de eficacia es la observación: identificar el estado de ánimo y disponibilidad de la persona antes de abordarla.
+
+- **Contexto / Entorno:** Cada entorno (calle, transporte, negocio) tiene su propio ritmo social, por lo que el tiempo disponible para la conversación varía y debe respetarse.
+
+- **Valor de la Referencia:** Todos estos métodos reflejan el mismo principio visto en la lección: el objetivo son las personas, no el lugar ni el método en sí mismo.
 #### ¿Qué experiencias has tenido predicando en hospitales, residencias de ancianos, cárceles, puertos y mercados al aire libre, o hablando con taxistas y vendedores ambulantes? 
+
+- **RESPUESTA — Directa**
+	- En la predicación en negocios tuve buenos resultados ya que las personas te escuchan con interés, además de que se me hace mas fácil empezar una conversación con algo relacionado a su negocio.
 ##### ¿En qué otros lugares has predicado públicamente?
+
+- **RESPUESTA — Directa**
+	- Negocios, parques, avenidas transitadas
 
 ### Sé valiente
 #### ¿Cómo demostramos valor en la predicación?
+
+- **RESPUESTA 1 — Directa**
+	- Demostramos valor al confiar en Jehová y pedirle fuerzas para hablarles a personas que quizás nos intimiden, igual que Pablo cobró valor para predicar en Filipos a pesar de haber sufrido maltrato. 
+	- El espíritu santo puede darnos esa misma valentía cuando sentimos temor o inseguridad.
+
+- **RESPUESTA 2 — Complementaria**
+	- También demostramos valor dejando a un lado los prejuicios, como hizo Jesús al acercarse a Zaqueo aunque otros lo evitaran. 
+	- Solo Jehová puede leer los corazones, así que no debemos juzgar a nadie por su apariencia o estilo de vida; nadie está fuera del alcance de su misericordia.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** Pablo menciona que "cobraron valor" después de sufrir, mostrando que el valor cristiano no es ausencia de miedo, sino actuar a pesar de él, con la ayuda de Jehová.
+	
+	- **Contexto / Entorno:** Zaqueo era un jefe de recaudadores de impuestos, una profesión despreciada por considerarse corrupta y colaboradora del imperio romano, lo que explica el rechazo social hacia él.
+	
+	- **Valor de la Referencia:** _lmd lección 6_ equilibra el valor con la prudencia, enseñando que ser valientes no significa imponernos, sino saber retirarnos con respeto si la persona no quiere escuchar.
 #### Antes de participar en cualquier tipo de predicación, ¿por qué es tan importante que ores?
+
+- **RESPUESTA 1 — Directa**
+	- Orar antes de predicar es importante porque, como Pablo, necesitamos pedirle a Jehová que nos conceda las palabras adecuadas en el momento oportuno. 
+	- La oración nos conecta directamente con la fuente de sabiduría y valor que necesitamos para representar bien las buenas noticias.
+
+- **RESPUESTA 2 — Complementaria**
+	- Pablo, un apóstol experimentado, todavía pedía que oraran por él para hablar con valor. 
+	- Esto muestra que ningún publicador, sin importar su experiencia, debería confiar solo en sus propias habilidades; la oración sincera antes de salir refleja humildad y dependencia total de Jehová.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Secreto sagrado" se refiere a verdades antes ocultas que Dios ha revelado en su tiempo señalado, como el papel de Cristo en el propósito divino.
+	
+	- **Contexto / Entorno:** Pablo escribió esto desde la prisión, mostrando que incluso en circunstancias difíciles, su prioridad era poder seguir predicando con valor.
+	
+	- **Valor de la Referencia:** Demuestra que la oración no es un simple ritual antes de salir, sino una petición específica y sincera por las palabras y el valor necesarios.
 ##### ¿Cómo demostrarás que actúas de acuerdo con tus oraciones?
+
+- **RESPUESTA 1 — Directa**
+	- Demuestro que actúo de acuerdo con mis oraciones saliendo realmente a predicar después de pedirle a Jehová valor y las palabras adecuadas, en vez de quedarme solo en la petición. 
+	- La oración debe ir seguida de acción, buscando activamente oportunidades durante el día para hablar de las buenas noticias.
+
+- **RESPUESTA 2 — Complementaria**
+	- También lo demuestro estando atento a las oportunidades que surgen después de orar, como si esperara que Jehová respondiera mi oración a través de una conversación inesperada. 
+	- Confiar en que él me dará las palabras significa estar dispuesto a hablar cuando se presente el momento, no solo cuando me sienta cómodo.
