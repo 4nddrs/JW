@@ -1,5 +1,4 @@
 [9B Repaso del día 3](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102014880&par=2)
-
 ## Lección 7A Cómo te ayudan las instrucciones y los consejos
 
 #### • ¿Cómo demuestra la forma en la que reaccionamos al consejo si somos personas espirituales o no? 
