@@ -1,5 +1,4 @@
 [6B Repaso del día 2](https://www.jw.org/finder?srcid=jwlshare&wtlocale=S&prefer=lang&docid=1102014874&par=3)
-
 ## Lección 4A La soberanía de Jehová y la santificación de su nombre
 
 #### ¿Cómo defienden los precursores la soberanía de Jehová? 
