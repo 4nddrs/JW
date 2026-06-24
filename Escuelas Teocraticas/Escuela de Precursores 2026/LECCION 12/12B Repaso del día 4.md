@@ -502,4 +502,4 @@
 - Estos tres hábitos juntos crean una cadena natural de continuidad que lleva progresivamente hacia el discipulado.
 
 - **Perla para el comentario:** 1 Corintios 3:6 es la clave emocional y espiritual de todo el taller. 
-- Cuando entendemos que Jehová es quien da el crecimiento, dejamos de cargar el peso de los resultados y nos liberamos para servir con alegría genuina, persistencia sin ansiedad y confianza en que cada visita fiel — aunque parezca pequeña — forma parte de un propósito mucho más grande que nosotros mismos.
+- Cuándo entendemos que Jehová es quien da el crecimiento, dejamos de cargar el peso de los resultados y nos liberamos para servir con alegría genuina, persistencia sin ansiedad y confianza en que cada visita fiel — aunque parezca pequeña — forma parte de un propósito mucho más grande que nosotros mismos.
