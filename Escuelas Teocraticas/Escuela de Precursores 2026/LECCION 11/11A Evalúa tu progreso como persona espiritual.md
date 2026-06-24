@@ -675,36 +675,352 @@
 		- si nos arreglaríamos bien para ver a alguien importante, mucho más lo haremos para representar al Soberano del universo.
 #### Explica lo que significan estas expresiones: 
 ##### a) “ropa apropiada”
+
+- **RESPUESTA — Directa**
+	- Ropa que es **adecuada para la ocasión y el contexto**, sin llamar la atención de forma indebida.
+	- No se trata solo de cubrir el cuerpo, sino de elegir prendas que reflejen los valores que uno profesa como adorador de Dios.
 ##### b) “modestia”
+
+- **RESPUESTA — Directa**
+	- Implica una **actitud de discreción y humildad** al vestirse. 
+	- La persona modesta no busca destacar ni impresionar a otros con su apariencia. 
+	- Es una cualidad del corazón que se refleja en cómo uno se presenta ante los demás.
 ##### c) “buen juicio”
+
+- **RESPUESTA — Directa**
+	- Es la capacidad de **tomar decisiones sensatas y equilibradas**, evaluando si la ropa o el arreglo personal es apropiado dado quién eres y dónde estás. 
+	- Implica autocontrol y conciencia del efecto que tu apariencia puede tener en otros.
+
+###### ANÁLISIS GENERAL
+
+- **Dato Clave:** Las tres expresiones forman una unidad: 
+	- _apropiada_ habla del **qué**
+	- _modestia_ del **por qué**
+	- _buen juicio_ del **cómo**
+- Juntas definen un estándar completo de vestimenta cristiana.
+
+- **Contexto / Entorno:** En el siglo I, las mujeres adineradas usaban trenzas elaboradas con oro y perlas como símbolo de estatus social. Pablo no condena la belleza, sino el **afán de exhibición** que distrae de la verdadera devoción.
+
+- **Valor de la Referencia:** El versículo 10 da la clave del contraste: el verdadero "adorno" de una mujer que profesa devoción a Dios son sus **buenas obras**, no su apariencia exterior — un principio que aplica igualmente a todos los cristianos.
 #### ¿Por qué debe estar limpio y en buen estado todo lo que usas en la predicación?
+
+- **RESPUESTA 1 — Directa**
+	- Todo lo que usamos en la predicación debe estar limpio y en buen estado porque representamos a Dios, quien es un Dios de orden y paz. 
+	- Nuestra apariencia ordenada refleja su carácter y comunica respeto hacia las personas a quienes les hablamos del mensaje.
+
+- **RESPUESTA 2 — Complementaria**
+	- Tito 2:10 añade una idea poderosa: 
+		- nuestra presentación personal puede **adornar las enseñanzas de Dios**.
+	- Así como un marco limpio realza un cuadro valioso, una apariencia cuidada hace que el mensaje que llevamos sea recibido con mayor atención y seriedad.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Adornar" en Tito 2:10 viene del griego _kosmeo_ — la misma raíz de _cosmos_, que significa **orden y belleza**. 
+	- Adornar las enseñanzas implica hacerlas atractivas mediante nuestra conducta y presentación.
+	
+	- **Contexto / Entorno:** Pablo escribió a Tito sobre esclavos que servían a amos no creyentes — su comportamiento íntegro podía **ganar respeto para el mensaje cristiano** incluso en una posición humilde, principio que aplica directamente al predicador.
+	
+	- **Valor de la Referencia:** Ambos textos juntos forman un argumento completo: 
+		- El orden refleja el carácter de Dios (1 Cor. 14:33)
+		- Una presentación digna **hace honor al mensaje**, no solo al mensajero (Tito 2:10).
 
 ### La familia 
 #### Al tratar a su familia, ¿cómo demuestra una persona espiritual que ve las cosas como Jehová?
+
+- **RESPUESTA 1 — Directa**
+	- Una persona espiritual demuestra ver las cosas como Jehová al cumplir su rol familiar con amor desinteresado y respeto mutuo. 
+		- Los esposos aman sacrificialmente
+		- Las esposas apoyan con lealtad
+		- Los hijos obedecen
+		- Los padres crían con la guía de Jehová — cada rol refleja su forma de pensar.
+
+- **RESPUESTA 2 — Complementaria**
+	- Un detalle notable está en 1 Pedro 3:1, 2: 
+		- una esposa puede **ganar a su esposo sin palabras**, simplemente con su conducta casta y respetuosa. 
+		
+	- Eso muestra que la espiritualidad genuina no solo se proclama, sino que se vive — y esa vida transforma el hogar desde adentro.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Sujeción" en Efesios 5:21 aplica **mutuamente** antes de hablar de roles específicos — la sujeción cristiana nace del temor a Cristo, no de una jerarquía fría sino de un amor recíproco y voluntario.
+	
+	- **Contexto / Entorno:** En el siglo I, el rol del esposo era culturalmente dominante y autoritario. Pablo y Pedro reencuadran cada rol desde el **amor y el ejemplo de Cristo**, revolucionando el concepto de familia en aquella cultura.
+	
+	- **Valor de la Referencia:** 1 Timoteo 5:8 añade una dimensión práctica frecuentemente pasada por alto: **proveer materialmente para la familia es un acto de fe**, no solo un deber social — descuidarlo equivale a rechazar la fe en la práctica.
 #### ¿Cómo demuestran los precursores que respetan el principio de autoridad dentro de la familia? 
+
+- **RESPUESTA 1 — Directa**
+	- Los precursores demuestran respetar la autoridad familiar aplicando los mismos principios que acabamos de estudiar. 
+	- Aunque dedican mucho tiempo al servicio, no descuidan sus roles: 
+		- Los esposos siguen amando y proveyendo
+		- Las esposas apoyan con lealtad
+		- Los hijos obedecen a sus padres.
+
+- **RESPUESTA 2 — Complementaria**
+	- Una persona espiritual entiende que el precursorado no está por encima de las responsabilidades del hogar. 
+	- Como vimos en 1 Timoteo 5:8, proveer para la familia es un acto de fe. 
+	- El verdadero progreso espiritual se refleja en equilibrar el servicio a Jehová con el cuidado fiel de los suyos.
+
+- **ANÁLISIS**
+	- **Nota importante:** Esta pregunta no incluye texto ni referencia nueva. Las respuestas se basan **exclusivamente** en los principios de Efesios 5 y 6, 1 Timoteo 5:8 y 1 Pedro 3:1, 2 ya compartidos en el turno anterior.
+	
+	- **Conexión clave:** El precursorado es una meta espiritual hermosa, pero Efesios 5:21 recuerda que la sujeción mutua en el hogar **no tiene excepción por causa del servicio** — ambas responsabilidades coexisten en la persona verdaderamente espiritual.
+	
+	- **Aplicación práctica:** El ejemplo más poderoso que un precursor puede dar no es solo las horas de servicio, sino una familia ordenada y feliz que refleja el carácter de Jehová en casa.
 ### Las conversaciones 
 #### ¿De qué suele hablar una persona espiritual?
+
+- **RESPUESTA 1 — Directa**
+	- Una persona espiritual habla de lo que edifica. 
+	- Evita palabras corrompidas — chismes, críticas, vulgaridades — y en cambio elige temas que fortalecen y benefician a quienes la escuchan. 
+	- Sus conversaciones reflejan lo que lleva en el corazón: 
+		- el pensamiento de Jehová.
+
+- **RESPUESTA 2 — Complementaria**
+	- No se trata de hablar solo de temas bíblicos en todo momento, sino de que **cualquier conversación** tenga un efecto positivo en los demás. 
+	- Una persona espiritual sabe leer qué necesita su interlocutor y adapta sus palabras para animar, consolar o fortalecer según la ocasión.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Corrompidas" viene del griego _sapros_, que literalmente describe fruta **podrida o en descomposición** — una imagen gráfica que sugiere que las palabras dañinas no son neutras, sino que descomponen activamente las relaciones y la fe de otros.
+	
+	- **Contexto / Entorno:** Pablo escribe a una congregación en Éfeso rodeada de una cultura griega muy dada al debate, la retórica y el entretenimiento verbal — el contraste cristiano era hablar con **propósito edificante**, no por lucimiento personal.
+	
+	- **Valor de la Referencia:** El versículo establece un doble estándar práctico: 
+		- La palabra debe ser útil _según la necesidad del momento_ 
+		- Debe beneficiar al oyente
+		
+	- Dos filtros concretos para evaluar cualquier conversación antes de hablar.
 #### ¿Sobre qué te gusta conversar? 
+
+- **RESPUESTA — Directa**
+	- De deportes, peliculas, series, libros y videojuegos. Aunque tambien me gusta conversar sobre algun detalle que encontre en mi estudio personal o alguna experiencia que tuve ayudando en alguna faceta del servicio. 
+
 #### Si ves que es necesario cambiar de tema, ¿cómo podrías desviar la conversación a un asunto espiritual? 
+
+- **RESPUESTA — Directa**
+	- Puedo usar alguna idea secundaria de la conversación para enlazarlo con un tema espiritual lo cual no es complicado ya que como servimos a Jehova cada aspecto de nuestra vida esta relacionado a algo espiritual o alguna faceta del servicio.
+
 #### ¿Cómo puedes ser razonable y equilibrado cuando hablas con otros?
+
+- **RESPUESTA 1 — Directa**
+	- Ser razonable al hablar significa no llevar las cosas al extremo. 
+	- Eclesiastés advierte contra ser "demasiado justo" o "sabio en exceso" — actitudes que pueden volverse rígidas y contraproducentes. 
+	- Una persona espiritual equilibrada sabe:
+		- cuándo hablar
+		- cuánto decir
+		- cómo decirlo sin imponer su criterio.
+
+- **RESPUESTA 2 — Complementaria**
+	- El equilibrio en la conversación también implica no corregir cada error ajeno ni tener siempre la última palabra. 
+	- Alguien que constantemente alecciona a otros, aunque tenga razón, puede causar rechazo en lugar de edificación — exactamente lo contrario de lo que enseña Efesios 4:29 que vimos antes.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Demasiado justo" en hebreo sugiere una justicia **autoimporta y performativa** — no una justicia genuina sino la de quien necesita que todos sepan cuán correcto es, lo cual genera fricción en lugar de paz.
+	
+	- **Contexto / Entorno:** Salomón escribe desde la experiencia de haber observado toda clase de comportamientos humanos — este proverbio refleja sabiduría práctica: el extremismo moral o intelectual **aísla y destruye relaciones** incluso cuando parte de buenas intenciones.
+	
+	- **Valor de la Referencia:** El versículo aporta una perspectiva sorprendente: el exceso de rectitud puede ser tan dañino como la falta de ella — un recordatorio de que la espiritualidad madura incluye **humildad conversacional**, no solo conocimiento bíblico.
 
 ### Las diferencias de opinión 
 #### Cuando surgen desacuerdos sobre asuntos personales o de otro tipo, ¿cómo reacciona una persona espiritual y cómo reacciona una persona física?
+
+- **RESPUESTA 1 — Directa**
+	- La diferencia es clara: 
+	- La persona física da rienda suelta a sus emociones — reacciona con ira, peleas y divisiones. 
+	- La persona espiritual, en cambio, mantiene la calma y ejerce autocontrol. 
+	- No es que no sienta la tensión, sino que el fruto del espíritu la ayuda a manejarla sabiamente.
+
+- **RESPUESTA 2 — Complementaria**
+	- Gálatas 5 presenta dos listas que funcionan como un espejo. 
+	- Cuando surge un desacuerdo, podemos preguntarnos honestamente: 
+		- ¿mi reacción aparece en la lista de obras de la carne o en la del fruto del espíritu? 
+	- Esa reflexión honesta es precisamente lo que hace una persona espiritual antes de responder.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Da rienda suelta" en Proverbios 29:11 viene del hebreo _yatsa_, que significa **dejar salir todo de golpe** — como abrir completamente una compuerta. El sabio no reprime sus emociones, sino que **regula el flujo** con sabiduría.
+	
+	- **Contexto / Entorno:** Pablo escribe a los Gálatas en medio de tensiones doctrinales y personales reales dentro de la congregación — las obras de la carne que lista no son abstractas sino **problemas concretos que ya estaban ocurriendo** entre hermanos.
+	
+	- **Valor de la Referencia:** Gálatas 5 revela que las obras de la carne en desacuerdos — enemistades, peleas, divisiones — son una lista larga, mientras que el fruto del espíritu que las contrarresta es **uno solo con múltiples facetas**, sugiriendo que la espiritualidad es un carácter integrado, no una lista de conductas aisladas.
 #### ¿Qué espera Jehová que hagan las personas espirituales en esos casos?
+
+- **RESPUESTA 1 — Directa**
+	- Jehová espera que las personas espirituales respondan al conflicto con bien, no con venganza. 
+	- En lugar de devolver mal por mal, deben bendecir, buscar la paz y dejar en manos de Jehová cualquier ajuste de cuentas. 
+	- La venganza no es su responsabilidad — la paz sí lo es.
+
+- **RESPUESTA 2 — Complementaria**
+	- Pablo va más lejos que simplemente evitar la venganza: pide **acción positiva hacia el ofensor** — alimentarlo, darle de beber. 
+	- Vencer el mal con el bien no es pasividad, es una estrategia activa y poderosa que transforma situaciones difíciles y refleja genuinamente el carácter de Jehová.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Brasas ardientes sobre su cabeza" es una expresión del Antiguo Oriente que describe el **efecto de vergüenza y convicción** que produce una bondad inesperada en quien nos ha hecho mal — no es un deseo de daño sino de transformación del corazón del ofensor.
+	
+	- **Contexto / Entorno:** Pablo escribe a cristianos en Roma que vivían bajo presión social y posible persecución — su consejo no era teórico sino una **guía de supervivencia espiritual práctica** para mantener la integridad sin caer en el ciclo de represalia.
+	
+	- **Valor de la Referencia:** El versículo 18 incluye una frase notable frecuentemente pasada por alto: _"hasta donde dependa de ustedes"_ — Jehová reconoce que la paz no siempre es posible al cien por ciento, pero espera que su pueblo **agote sus propios recursos** antes de rendirse.
 ### Los consejos 
 #### ¿Cómo reacciona la persona espiritual cuando recibe un consejo? 
+
+- **RESPUESTA 1 — Directa**
+	- La persona espiritual recibe el consejo sin enojarse ni ponerse a la defensiva.
+	- Eclesiastés advierte que el enojo ante la corrección es señal de insensatez. 
+	- En cambio, quien es espiritual reconoce humildemente que el consejo es una oportunidad de crecer, no un ataque personal que defender.
+
+- **RESPUESTA 2 — Complementaria**
+	- Romanos 12:16 añade la actitud de fondo:
+		- no considerarse superior ni volverse sabio a los propios ojos. 
+	- Una persona que se cree demasiado madura para recibir consejo ya dejó de crecer espiritualmente. 
+	- La verdadera espiritualidad se reconoce precisamente en la disposición humilde de seguir aprendiendo.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "No te enojes fácilmente" en hebreo sugiere literalmente **no apresurarse en el espíritu** — el enojo ante el consejo casi siempre es una reacción instantánea del orgullo antes de que la razón tenga oportunidad de procesar lo que se dijo.
+	
+	- **Contexto / Entorno:** Salomón observó que los líderes y sabios de su época frecuentemente rechazaban la corrección como señal de debilidad — en su cultura, aceptar consejo podía percibirse como **pérdida de autoridad**, un patrón que sigue siendo tentador hoy.
+	
+	- **Valor de la Referencia:** Romanos 12:16 conecta directamente la humildad intelectual con la humildad relacional — quien no se cree mejor que otros **tampoco se cree demasiado bueno para ser corregido**, formando un círculo virtuoso de crecimiento espiritual continuo.
 #### ¿Qué harás si te parece que lo que te han dicho está fuera de lugar?
+
+- **RESPUESTA — Directa**
+	- Reaccionar con calma pensando en que haría Jesus.
 
 ### Las tentaciones 
 #### ¿Cómo reacciona la persona física ante una tentación de tipo sexual? ¿Y la persona espiritual? 
 
+- **RESPUESTA 1 — Directa**
+	- La persona física da rienda suelta a sus emociones y deseos, como vimos en Gálatas 5:19 — la inmoralidad sexual aparece primera en la lista de obras de la carne. 
+	- La persona espiritual, en cambio, ejerce autocontrol, uno de los frutos del espíritu, y mantiene la calma ante la tentación.
+
+- **RESPUESTA 2 — Complementaria**
+	- La persona espiritual también recuerda el principio de Romanos 12:21: vencer el mal con el bien. 
+	- Ante una tentación sexual no se queda pasiva esperando ceder, sino que actúa positivamente — cambia el entorno, ocupa su mente en cosas edificantes y busca apoyo si es necesario.
+
+- **ANÁLISIS**
+	- **Conexión clave:** La diferencia entre ambas personas no está en si sienten la tentación, sino en **cómo reaccionan** ante ella — el fruto del espíritu no elimina la tentación, sino que equipa para manejarla.
+	
+	- **Principio de fondo:** Tener "la mente de Cristo" mencionada en la introducción (1 Cor. 2:16) es precisamente lo que permite a la persona espiritual ver la tentación desde la perspectiva de Jehová antes de actuar.
 #### ¿Cómo demostró este joven que era un hombre físico? 
+
+- **RESPUESTA — Directa**
+	- Este joven demostró ser una persona física por tres decisiones concretas: 
+		- anduvo cerca de la tentación
+		- lo hizo a una hora peligrosa
+		- sin compañía.
+	- No fue un accidente — fueron pasos deliberados hacia el peligro. 
+	- La persona física no huye de la tentación, se acerca curiosamente a ver qué pasa.
 ##### ¿Qué consejos de este relato pueden ayudar a una persona espiritual a no caer en la inmoralidad?
 
+- **RESPUESTA — Directa**
+	- El relato enseña consejos prácticos muy claros: 
+		- evitar los lugares de riesgo
+		- cuidar los horarios
+		- no subestimar el poder de la persuasión. 
+		
+	- La persona espiritual reconoce que nadie cae de golpe — siempre hay pasos previos que se pudieron evitar, como caminar deliberadamente hacia la casa de aquella mujer.
+
+###### ANÁLISIS
+
+- **Dato Clave / Palabra:** "Al que le faltaba sensatez" en hebreo describe literalmente a alguien **sin corazón** — no emocionalmente, sino sin capacidad de razonamiento moral. No era malvado por naturaleza sino simplemente **vacío de principios** que lo guiaran en el momento crítico.
+
+- **Contexto / Entorno:** La escena ocurre deliberadamente "al anochecer, al acercarse la oscuridad" — Salomón destaca el horario porque en la cultura antigua la noche era sinónimo de **ausencia de testigos y de juicio nublado**, dos factores que la tentación siempre aprovecha.
+
+- **Valor de la Referencia:** La comparación con "un toro al matadero" es devastadoramente gráfica — el animal no sabe lo que le espera. El texto advierte que la seducción gradual **anestesia el juicio** hasta que la persona cae sin darse cuenta del daño irreversible que viene.
 ### Sigue evaluando tu progreso (1 Cor. 9:24) 
 #### ¿Cómo muestran los siguientes versículos que los apóstoles debían seguir esforzándose por ser hombres espirituales? 
 ##### Mateo 20:20, 21, 24-28 
+
+- **RESPUESTA 1 — Directa**
+	- Este relato muestra que incluso los apóstoles más cercanos a Jesús todavía luchaban con ambiciones personales y rivalidades — reacciones típicas de personas físicas. 
+	- Necesitaban seguir esforzándose porque la espiritualidad no es un logro instantáneo sino un proceso continuo de crecimiento y corrección.
+
+- **RESPUESTA 2 — Complementaria**
+	- Jesús no los reprendió con dureza sino que les enseñó el principio correcto: 
+		- la grandeza espiritual se mide en servicio, no en posición. 
+	- El ejemplo más poderoso lo dio él mismo — el Hijo del Hombre vino a servir y dar su vida. 
+	- Les mostró que tener "la mente de Cristo" significa adoptar exactamente esa actitud de siervo.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Esclavo" en griego es _doulos_ — no un servidor ocasional sino alguien cuya **existencia entera está dedicada a otros**. Jesús usa deliberadamente la palabra más extrema para redefinir completamente qué significa ser grande en el Reino.
+	
+	- **Contexto / Entorno:** La solicitud de la madre de Zebedeo ocurrió precisamente después de que Jesús anunció su muerte por tercera vez — los apóstoles todavía pensaban en **posiciones de poder terrenal** mientras Jesús hablaba de sacrificio, revelando cuán profunda era la brecha que aún debían cerrar.
+	
+	- **Valor de la Referencia:** El versículo 24 es frecuentemente pasado por alto: los **otros diez también se indignaron** — no por principio sino por celos. Esto muestra que el problema no era solo de Santiago y Juan sino de todo el grupo, subrayando que ninguno estaba exento de seguir trabajando en su espiritualidad.
 ##### Lucas 22:24-27 
+
+- **RESPUESTA 1 — Directa**
+	- Lo que hace este pasaje especialmente revelador es el momento en que ocurre: durante la última cena, horas antes de la muerte de Jesús. 
+	- Aun así los apóstoles discutían sobre quién era el mayor.
+	- Eso muestra claramente que seguían reaccionando como personas físicas y necesitaban seguir esforzándose considerablemente.
+
+- **RESPUESTA 2 — Complementaria**
+	- Jesús no solo corrigió con palabras sino con su propio ejemplo presente: "yo estoy entre ustedes como el que sirve." No dijo "yo serví" sino que usó el tiempo presente — era su modo de vida constante, no un acto ocasional. Esa es la mentalidad que los apóstoles aún necesitaban desarrollar completamente.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Benefactores" era un título honorífico que los reyes griegos y romanos se **autoasignaban** para justificar su autoridad — Jesús usa esa palabra irónicamente para exponer que el liderazgo mundano busca reconocimiento mientras el liderazgo espiritual busca exactamente lo opuesto.
+	
+	- **Contexto / Entorno:** Lucas sitúa esta discusión **durante la cena de la Pascua** — el momento más solemne y cargado emocionalmente de la vida de Jesús. Que los apóstoles eligieran ese momento para rivalizar entre sí revela cuán arraigada estaba todavía la mentalidad física en ellos.
+	z`
+	- **Valor de la Referencia:** Comparado con Mateo 20, este pasaje muestra que la misma lección tuvo que darse **dos veces en contextos distintos** — evidencia concreta de que el progreso espiritual requiere esfuerzo continuo y repetido, exactamente el tema central de esta lección.
 #### ¿Cómo indica Mateo 16:16, 17 que el apóstol Pedro era un hombre espiritual?
+
+- **RESPUESTA 1 — Directa**
+	- Pedro demostró ser espiritual porque su respuesta no vino de razonamiento humano sino de una verdad revelada por Jehová. 
+	- Reconocer a Jesús como "el Cristo, el Hijo del Dios vivo" requería una conexión espiritual genuina con Jehová — exactamente lo que define a una persona espiritual según la introducción de esta lección.
+
+- **RESPUESTA 2 — Complementaria**
+	- La publicación destaca que Pedro respondió sin dudarlo un segundo — su convicción era inmediata y profunda, no calculada. 
+	- Eso revela que su espiritualidad no era superficial sino que venía del corazón. 
+	- Jehová no revela verdades importantes a quienes lo conocen de forma superficial, sino a quienes cultivan una relación genuina con él.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Reveló" en griego es _apokalypto_ — literalmente **quitar el velo** de algo oculto. Jehová no simplemente informó a Pedro, sino que le descubrió una realidad que la mente humana sola no podía alcanzar, subrayando que la espiritualidad genuina depende de la iniciativa divina tanto como del esfuerzo humano.
+	
+	- **Contexto / Entorno:** Esta escena ocurre en Cesarea de Filipo, una región llena de templos paganos dedicados a múltiples dioses — que Pedro confesara con total convicción la identidad del único Hijo del Dios vivo **en ese entorno** hace su declaración aún más significativa y valiente.
+	
+	- **Valor de la Referencia:** La publicación _ia_ añade un detalle visual poderoso: 
+		- Jesús lo miró **complacido y con cariño** — una imagen que muestra que Jehová y Jesús se deleitan genuinamente cuando sus siervos demuestran espiritualidad real, lo cual es un incentivo personal muy concreto para seguir progresando.
+
 #### ¿Cómo sabemos que Pedro tenía que seguir progresando? ¿Por qué nos anima eso?
+
+- **RESPUESTA 1 — Directa**
+	- Sabemos que Pedro debía seguir progresando porque justo después de su gran confesión espiritual, reprendió a Jesús por hablar de su muerte — pensando como hombre, no como persona espiritual. 
+	- Eso nos anima porque demuestra que incluso alguien tan cercano a Jesús podía fallar y recuperarse, igual que nosotros.
+
+- **RESPUESTA 2 — Complementaria**
+	- Lo más alentador del relato es la reacción de Pedro ante la corrección: 
+		- no se ofendió ni protestó sino que la aceptó con humildad. 
+	- La publicación destaca que Jesús veía su buen corazón y su potencial a pesar del error — de igual manera Jehová nos ve a nosotros, no solo como somos ahora sino como podemos llegar a ser.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** La diferencia entre "Vete" a Satanás y "Ponte detrás de mí" a Pedro es teológicamente crucial — Jesús **no estaba rechazando a Pedro** sino reubicándolo: 
+		- de obstáculo delante a seguidor detrás, una corrección de postura espiritual, no de identidad ni de valor como persona.
+	
+	- **Contexto / Entorno:** El párrafo 16 señala algo que se pasa por alto fácilmente: 
+		- Jesús se dio la vuelta y miró a **todos los discípulos** al corregir a Pedro — porque posiblemente todos pensaban igual. 
+	- La corrección era colectiva aunque Pedro fue quien habló, lo cual amplía enormemente su aplicación personal para cada lector.
+	
+	- **Valor de la Referencia:** La publicación aporta una advertencia muy directa del párrafo 16 que resulta incómoda pero valiosa: 
+		- Es posible ponerse **del lado de Satanás con buenas intenciones.** 
+		
+	- Un recordatorio de que la espiritualidad no se mide por el entusiasmo ni las buenas intenciones sino por alinear el pensamiento con el de Jehová.
 #### ¿Cómo puedes conservar esa felicidad que viene de ser una persona espiritual?
+
+- **RESPUESTA 1 — Directa**
+	- La felicidad espiritual se conserva manteniendo la perspectiva correcta ante las pruebas. 
+	- Pedro enseña que el sufrimiento por causa de la justicia no destruye la alegría sino que la profundiza — porque cada prueba superada demuestra que la fe es genuina y valiosa, mucho más que el oro refinado en fuego.
+
+- **RESPUESTA 2 — Complementaria**
+	- Pedro añade algo sorprendente: 
+	- quienes son insultados por el nombre de Cristo son felices porque el espíritu de Dios descansa sobre ellos. 
+	- La felicidad espiritual no depende de circunstancias favorables sino de la presencia activa de Jehová — eso la hace una felicidad que ninguna prueba externa puede arrebatar permanentemente.
+
+- **ANÁLISIS**
+	- **Dato Clave / Palabra:** "Fe de calidad probada" en griego es _dokimion_ — término técnico usado para describir el metal que **ha pasado la prueba del fuego y ha resultado genuino**. 
+		- Pedro no compara la fe con el oro para halagar sino para establecer que la fe probada es literalmente más valiosa porque el oro perece y la fe conduce a vida eterna.
+	
+	- **Contexto / Entorno:** Pedro escribe a cristianos dispersos por Asia Menor que enfrentaban persecución real y pérdida de propiedades, familia y estatus social — su mensaje no era teórico sino **una ancla emocional y espiritual concreta** para personas que sufrían activamente mientras leían sus palabras.
+	
+	- **Valor de la Referencia:** Los tres pasajes juntos presentan una progresión notable: 
+		- La alegría coexiste con la angustia (1:6)
+		- La felicidad persiste ante la injusticia (3:14)
+		- Se intensifica al compartir los sufrimientos de Cristo (4:13) 
+		
+	- Mostrando que la felicidad espiritual no es estática sino que **crece precisamente bajo presión**, exactamente al revés de la felicidad mundana.
