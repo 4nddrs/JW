@@ -483,8 +483,8 @@
 ###### ANÁLISIS GENERAL
 
 - **Hilo conductor:** Este taller no introduce un método nuevo sino que consolida habilidades prácticas ya estudiadas
-- Llevándolas a un nivel de aplicación más consciente y con objetivos claros. 
-- El foco se desplaza de "hacer visitas" a "hacer visitas con propósito definido hacia el curso bíblico".
+	- Llevándolas a un nivel de aplicación más consciente y con objetivos claros. 
+	- El foco se desplaza de "hacer visitas" a "hacer visitas con propósito definido hacia el curso bíblico".
 
 - **Progresión lógica:** La lección parte de lo ya conocido:
 	- Interés genuino
@@ -492,7 +492,7 @@
 - Añade el componente del objetivo claro en cada visita, y lo ancla en el principio bíblico de 1 Corintios 3:6 — nuestra responsabilidad es plantar y regar con fidelidad; el resultado está en manos de Jehová.
 
 - **Punto de mayor peso práctico:** La distinción entre revisita de cortesía y revisita con objetivo es el aporte central de este taller. 
-- Muchos publicadores visitan sin dirección definida y luego no saben cómo avanzar hacia el curso bíblico — tener objetivos concretos para cada visita resuelve exactamente ese problema.
+	- Muchos publicadores visitan sin dirección definida y luego no saben cómo avanzar hacia el curso bíblico — tener objetivos concretos para cada visita resuelve exactamente ese problema.
 
 - **Aplicación práctica central:** Tres hábitos concretos sintetizan todo el taller: 
 	1. Siempre destacar un texto bíblico
@@ -501,4 +501,5 @@
 	
 - Estos tres hábitos juntos crean una cadena natural de continuidad que lleva progresivamente hacia el discipulado.
 
-- **Perla para el comentario:** 1 Corintios 3:6 es la clave emocional y espiritual de todo el taller. Cuando entendemos que Jehová es quien da el crecimiento, dejamos de cargar el peso de los resultados y nos liberamos para servir con alegría genuina, persistencia sin ansiedad y confianza en que cada visita fiel — aunque parezca pequeña — forma parte de un propósito mucho más grande que nosotros mismos.
+- **Perla para el comentario:** 1 Corintios 3:6 es la clave emocional y espiritual de todo el taller. 
+- Cuando entendemos que Jehová es quien da el crecimiento, dejamos de cargar el peso de los resultados y nos liberamos para servir con alegría genuina, persistencia sin ansiedad y confianza en que cada visita fiel — aunque parezca pequeña — forma parte de un propósito mucho más grande que nosotros mismos.
