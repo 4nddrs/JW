@@ -450,7 +450,7 @@
 		1. Enseña cómo usarlo
 		2. El contenido
 			- Modelando exactamente el principio:
-				- de preparar al estudiante antes de enseñarle.
+				- De preparar al estudiante antes de enseñarle.
 #### Si tú te preparas y eres regular en el estudio, ¿qué le estarás enseñando al estudiante?
 
 - **RESPUESTA 1 — Directa**
