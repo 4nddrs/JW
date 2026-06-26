@@ -450,14 +450,13 @@
 		1. Enseña cómo usarlo
 		2. El contenido
 			- Modelando exactamente el principio:
-				- De preparar al estudiante antes de enseñarle.
+				- de preparar al estudiante antes de enseñarle.
 #### Si tú te preparas y eres regular en el estudio, ¿qué le estarás enseñando al estudiante?
 
 - **RESPUESTA 1 — Directa**
-	- Le estarás enseñando con el ejemplo que el estudio bíblico es una prioridad, no una actividad opcional. 
-	- Sin decirlo con palabras, tu preparación visible y tu regularidad comunican que la verdad vale el esfuerzo y el tiempo, y que ese es el estándar que él también debe adoptar.
+	-
 
 - **RESPUESTA 2 — Complementaria**
-	- Un maestro regular y preparado le muestra al estudiante cómo será su propia vida espiritual en el futuro. 
-	- Inconscientemente, el estudiante aprende el ritmo, la disciplina y el valor del estudio personal. 
-	- Está viendo en acción al tipo de siervo de Jehová que él mismo puede llegar a ser.
+	-
+
+- **ANÁLISIS**
